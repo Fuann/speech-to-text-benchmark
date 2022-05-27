@@ -1,0 +1,1 @@
+since christ was given for our sins it stands to reason that they could not be put away by our own efforts

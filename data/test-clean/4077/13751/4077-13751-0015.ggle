@@ -1,0 +1,1 @@
+a small settlement had been founded by mormon families on shoal creek and here on the thirtieth of october one thousand eight hundred and thirty eight a company of two hundred and forty fell upon the hapless settlers and butchered a score

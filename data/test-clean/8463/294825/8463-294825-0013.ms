@@ -1,0 +1,1 @@
+for many then this book has been a source of fascination surely one of the most influential novels ever written an inspiration for such scientists and discoverers as engineer simon lake oceanographer william bebb polar traveler sir ernest shackleton

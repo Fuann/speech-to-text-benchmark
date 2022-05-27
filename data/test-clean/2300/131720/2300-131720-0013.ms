@@ -1,0 +1,1 @@
+unless he could secure an engine of smoother running and more exactly govern and regulated than those available for his dynamo and lamp edison realized that he would find it almost impossible to give a steady light

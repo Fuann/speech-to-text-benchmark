@@ -1,0 +1,1 @@
+the alternative was that someone passing had observed the key in the door had known that i was out and had entered to look at the papers

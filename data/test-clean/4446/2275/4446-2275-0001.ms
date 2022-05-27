@@ -1,0 +1,1 @@
+she blushed and smiled and followed his card in her confusion before she ran upstairs

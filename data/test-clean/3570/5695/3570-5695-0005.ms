@@ -1,0 +1,1 @@
+the man of the household also can do something in this direction and indeed he commonly does but with a still lower descent into the levels of indigence along the margin of the slums the man and presently also the children virtually ceased to consume valuable goods for appearances and the woman remains virtually the sole exponent of the household pecuniary decency

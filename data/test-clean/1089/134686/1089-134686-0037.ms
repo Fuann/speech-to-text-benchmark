@@ -1,0 +1,1 @@
+in the silence their dark fire kindled the dusk into a tawny glow

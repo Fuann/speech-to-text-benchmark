@@ -1,0 +1,1 @@
+it would seem that only rather recent events can be placed at all accurately by means of feelings giving their temporal relation to the present but it is clear that such feelings must play an essential part in the process of dating remembered events

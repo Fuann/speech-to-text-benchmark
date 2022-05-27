@@ -1,0 +1,1 @@
+he doesn't say but it's on the frontier and on the map everything beyond it is marked indians and desert and looks as desolate as a wednesday meeting it was time for him to do something

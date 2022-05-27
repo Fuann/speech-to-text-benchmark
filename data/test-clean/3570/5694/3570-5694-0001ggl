@@ -1,0 +1,1 @@
+the utility of consumption as an evidence of wealth is to be classed as a derivative growth

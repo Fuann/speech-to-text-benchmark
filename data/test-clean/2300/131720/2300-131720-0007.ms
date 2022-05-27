@@ -1,0 +1,1 @@
+brought as the prairies and free and thought as the winds that swept them he is idiosyncratically opposed to loose and wasteful methods to plans of empire that neglect the poor at the gate

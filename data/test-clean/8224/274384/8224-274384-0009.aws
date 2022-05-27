@@ -1,0 +1,1 @@
+the parliament and the scots laid their proposals before the king

@@ -1,0 +1,1 @@
+yet these thoughts affected hester prynne less with hope than apprehension

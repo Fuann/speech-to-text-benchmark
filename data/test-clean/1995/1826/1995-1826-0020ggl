@@ -1,0 +1,1 @@
+miss taylor did not know much about cotton but at least one more remark seemed called for

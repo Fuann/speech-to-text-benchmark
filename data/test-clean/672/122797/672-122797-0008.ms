@@ -1,0 +1,1 @@
+this happened every year and the young fur tree that had now grown to a very comely size trembled at the sight for the magnificent great trees fell to the earth with noise and cracking the branches were lopped off and the trees looked long and bare they were hardly to be recognized and then they were laid in carts and the horses dragged them out of the wood

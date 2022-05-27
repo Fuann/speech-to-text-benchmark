@@ -1,0 +1,1 @@
+my tongue refused to articulate my power of speech left me

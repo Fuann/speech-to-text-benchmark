@@ -1,0 +1,1 @@
+not gold or silver or patial lambs or an angel but himself what for

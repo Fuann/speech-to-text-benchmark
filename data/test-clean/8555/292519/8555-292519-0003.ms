@@ -1,0 +1,1 @@
+in a sunset glowing of crimson and gold she lies the glory of the world a beached king's galley whose sails are furled who is hung with tapestries rich and old

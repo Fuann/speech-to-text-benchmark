@@ -1,0 +1,1 @@
+slow to world greetings quick with its o list when the angels speak

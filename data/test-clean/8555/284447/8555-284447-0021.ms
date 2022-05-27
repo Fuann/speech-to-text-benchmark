@@ -1,0 +1,1 @@
+then they sparred in great haste for the door and the goat gave a final but that sent the row of royal ladies all diving into the corridor in another tangle whereupon they shrieked in a manner that terrified every one within sound of their voices

@@ -1,0 +1,1 @@
+for instance one day the children had been playing upon the piazza with blocks and other playthings and finally had gone into the house leaving all the things on the floor of the piazza instead of putting them away in their places as they ought to have done

@@ -1,0 +1,1 @@
+in this case as in most others what may be taken as certain in advance is rather vague

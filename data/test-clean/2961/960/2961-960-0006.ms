@@ -1,0 +1,1 @@
+the fancies of the neoplatonists are only interesting to us because they exhibit a phase of the human mind which prevailed widely in the first centuries of the christian era and is not wholly extinct in our own day

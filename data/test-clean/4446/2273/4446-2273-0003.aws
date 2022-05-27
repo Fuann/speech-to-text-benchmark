@@ -1,0 +1,1 @@
+when bartley arrived at bedford square on sunday evening marie the pretty little french girl met him at the door and conducted him upstairs

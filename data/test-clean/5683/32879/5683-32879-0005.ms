@@ -1,0 +1,1 @@
+this transient spring and lighting up are beautiful a glamour beguiling our senses

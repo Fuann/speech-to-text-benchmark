@@ -1,0 +1,1 @@
+we are to hear christ who has been appointed by the father as our divine teacher

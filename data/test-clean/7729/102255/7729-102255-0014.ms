@@ -1,0 +1,1 @@
+the leaders of the conspiracy became distrustful of their power to crush the town

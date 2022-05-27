@@ -1,0 +1,1 @@
+is there not a meridian everywhere

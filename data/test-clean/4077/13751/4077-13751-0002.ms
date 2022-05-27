@@ -1,0 +1,1 @@
+instead of but six regularly affiliated members and at most two square of adherents the organization numbers to day many one hundred thousand souls

@@ -1,0 +1,1 @@
+although only a moderate breeze was blowing the sea was rough a circumstance to be accounted for only by the diminution in the force of the earth's attraction rendering the liquid particles so buoyant that by the mere effect of oscillation they were carried to a height that was quite unprecedented

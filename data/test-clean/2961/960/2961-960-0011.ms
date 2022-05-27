@@ -1,0 +1,1 @@
+with heraclitus he acknowledges the perpetual flux like an exaggerates he asserted the predominance of mind although admitting an element of necessity which reason is incapable of subduing like the pythagoreans he supposes the mystery of the world to be contained in number

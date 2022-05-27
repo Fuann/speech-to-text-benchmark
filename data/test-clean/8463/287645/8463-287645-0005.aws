@@ -1,0 +1,1 @@
+a few years back one of their slaves a coachman was kept on the coach box one cold night when they were out at a ball until he became almost frozen to death in fact he did die in the infirmary from the effects of the frost about one week afterwards

@@ -1,0 +1,1 @@
+upon the large square in front of the hotel the shadows of the tents intersected by the golden moon beams formed as it were a huge mosaic of jet and yellow flagstones

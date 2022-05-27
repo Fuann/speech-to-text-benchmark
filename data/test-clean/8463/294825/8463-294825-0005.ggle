@@ -1,0 +1,1 @@
+other subtleties occur inside each episode the textures sparkling with wit information and insight

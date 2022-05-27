@@ -1,0 +1,1 @@
+chelford had a note from mr wilder this morning another note his coming delayed and something of his having to see some person who was abroad continued dorkas after a little pause

@@ -1,0 +1,1 @@
+she rose quickly to her feet with an impetuous gesture that made her visitor catch her breath

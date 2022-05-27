@@ -1,0 +1,1 @@
+by being studious of color they are studious of division and while the quiros devotes himself to the representation of degrees of force and one thing unseparated light the colorists have for their function the attainment of beauty by arrangement of the divisions of light

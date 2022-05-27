@@ -1,0 +1,1 @@
+though thrown into prison for this enterprise and detained some time he was not discouraged but still continued by his countenance and protection to infuse spirit into the distressed royalists

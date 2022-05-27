@@ -1,0 +1,1 @@
+finally the one party went off exalting and the other was left in desolation and woe

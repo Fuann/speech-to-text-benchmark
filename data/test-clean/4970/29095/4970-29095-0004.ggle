@@ -1,0 +1,1 @@
+i heard father tell cousin abner that he was whipped so often for whistling when he was a boy that he was determined to have what compensation he could get now

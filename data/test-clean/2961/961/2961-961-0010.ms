@@ -1,0 +1,1 @@
+but in egypt the traditions of our own and other lands are by us registered for ever in our temples

@@ -1,0 +1,1 @@
+at the conclusion of the banquet which was served at five hundred o'clock the king entered his cabinet where his tailors were awaiting him for the purpose of trying on the celebrated costume representing spring which was the result of so much imagination and had caused so many efforts of thought to the designers and ornament workers of the court

@@ -1,0 +1,1 @@
+little pearl who was as greatly pleased with the gleaming armour as she had been with the glittering frontispiece of the house spent some time looking into the polished mirror of the breastplate

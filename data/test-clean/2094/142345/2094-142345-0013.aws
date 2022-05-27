@@ -1,0 +1,1 @@
+her tongue was not less keen than her eye and whenever a damsel came within earshot seemed to take up an unfinished lecture as a barrel organ takes up a tune precisely at the point where it had left off

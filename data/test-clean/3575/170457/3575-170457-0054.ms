@@ -1,0 +1,1 @@
+stung by anxiety for this little sister she upbraided miss w for her fancied indifference to anne's state of health

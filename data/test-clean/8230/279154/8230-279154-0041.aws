@@ -1,0 +1,1 @@
+the definition of my experience is difficult broadly speaking it is everything that is connected with what i am experiencing now by certain links of which the various forms of memory are among the most important

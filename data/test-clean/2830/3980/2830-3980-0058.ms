@@ -1,0 +1,1 @@
+mohammed also speaks highly of christ

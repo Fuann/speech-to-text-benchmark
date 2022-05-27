@@ -1,0 +1,1 @@
+but thou is like a faint cloud kindled at the rising sun i vanish from my pearly throne and who shall find my place

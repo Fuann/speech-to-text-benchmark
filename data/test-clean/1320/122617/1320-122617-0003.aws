@@ -1,0 +1,1 @@
+there was something in his air and manner that betrayed to the scout the utter confusion of the state of his mind

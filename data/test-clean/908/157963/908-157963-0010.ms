@@ -1,0 +1,1 @@
+she ceased and smiled in tears then sat down in her silver shrine

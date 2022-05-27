@@ -1,0 +1,1 @@
+she ran to her husband's side at once and helped him lift the four kettles from the fire

@@ -1,0 +1,1 @@
+at the same time paul confirms our creed that christ is very god

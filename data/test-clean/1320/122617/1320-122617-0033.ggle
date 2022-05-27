@@ -1,0 +1,1 @@
+if however they take your scalp as i trust and believe they will not depend on it uncas and i will not forget the deed but revenge it as becomes true warriors and trusty friends

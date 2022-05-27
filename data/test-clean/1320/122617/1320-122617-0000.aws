@@ -1,0 +1,1 @@
+notwithstanding the high resolution of hawkeye he fully comprehended all the difficulties and danger he was about to incur

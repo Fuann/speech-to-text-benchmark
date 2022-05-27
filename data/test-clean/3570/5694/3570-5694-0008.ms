@@ -1,0 +1,1 @@
+the consumption of luxuries in the true sense is a consumption directed to the comfort of the consumer himself and is therefore a mark of the master

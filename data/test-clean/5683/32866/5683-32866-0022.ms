@@ -1,0 +1,1 @@
+it's curtains were of thick and faded tapestry

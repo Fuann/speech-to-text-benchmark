@@ -1,0 +1,1 @@
+bartley bent over and took her in his arms kissing her mouth and her wet tired eyes

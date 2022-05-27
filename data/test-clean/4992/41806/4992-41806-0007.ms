@@ -1,0 +1,1 @@
+olive had painted the motto on a long narrow panel of canvas and giving it to mr popham stood by the fireside while he deftly fitted it into the place prepared for it

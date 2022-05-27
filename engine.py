@@ -14,6 +14,7 @@ import requests
 import soundfile
 from deepspeech import Model
 from google.cloud import speech
+from google.cloud import storage
 from ibm_cloud_sdk_core.authenticators import IAMAuthenticator
 from ibm_watson import SpeechToTextV1
 
@@ -211,6 +212,21 @@ class GoogleSpeechToTextEngine(Engine):
 
         self._cache_extension = cache_extension
 
+    def upload_blob(self, bucket_name, source_file_name):
+        """Uploads a file to the bucket."""
+        # bucket_name = "your-bucket-name"
+        # source_file_name = "local/path/to/file"
+        # destination_blob_name = "storage-object-name"
+
+        storage_client = storage.Client()
+        bucket = storage_client.bucket(bucket_name)
+        blob = bucket.blob(os.path.basename(source_file_name))
+
+        blob.upload_from_filename(source_file_name)
+
+        #print( "File", source_file_name, "uploaded to", blob.public_url )
+        return "gs://" + bucket_name + "/" + os.path.basename(source_file_name)
+
     def transcribe(self, path):
         cache_path = path.replace('.flac', self._cache_extension)
         if os.path.exists(cache_path):
@@ -220,9 +236,17 @@ class GoogleSpeechToTextEngine(Engine):
         with open(path, 'rb') as f:
             content = f.read()
 
-        audio = speech.RecognitionAudio(content=content)
-
-        response = self._client.recognize(config=self._config, audio=audio)
+        if soundfile.read(path)[0].size > 16000 * 60:
+            # long audio (async)
+            # upload (fixed to long_audio_bucket) -> get url -> recognize
+            gcs_uri = self.upload_blob("long_audio_bucket", path)
+            audio = speech.RecognitionAudio(uri=gcs_uri)
+            operation = self._client.long_running_recognize(config=self._config, audio=audio)
+            response = operation.result(timeout=90)
+        else:
+            # short audio (sync)
+            audio = speech.RecognitionAudio(content=content)
+            response = self._client.recognize(config=self._config, audio=audio)
 
         res = ' '.join(result.alternatives[0].transcript for result in response.results)
         res = self._normalize(res)

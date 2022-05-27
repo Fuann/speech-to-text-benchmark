@@ -1,0 +1,1 @@
+pearl seeing the rose bushes began to cry for our red rose and would not be pacified

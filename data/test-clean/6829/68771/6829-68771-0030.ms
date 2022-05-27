@@ -1,0 +1,1 @@
+her manner was neither independent nor assertive but rather one of well bred composure and calm reliance

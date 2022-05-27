@@ -1,0 +1,1 @@
+in a few days an officer came with a requisition from governor shannon and took the prisoner by land a westport and afterwards from there to kansas city and leavenworth

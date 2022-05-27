@@ -1,0 +1,1 @@
+just then leocadia came to herself and embracing the cross seemed changed into a sea of tears and the gentlemen remaining in utter bewilderment until his wife had repeated to him from beginning to end leocadia's whole story and he believed it through the blessed dispensation of heaven which had confirmed it by so many convincing testimonies

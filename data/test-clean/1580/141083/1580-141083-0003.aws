@@ -1,0 +1,1 @@
+without his scrapbooks his chemicals and his homely untidiness he was an uncomfortable man

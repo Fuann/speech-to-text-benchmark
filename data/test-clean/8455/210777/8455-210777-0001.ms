@@ -1,0 +1,1 @@
+had ever cressler not been good looking had jack been still at college had sir kennington oval remained in england had mr bunnett and the barkeeper not succeeded in stopping my carriage on the hill should i have succeeded in arranging for the final departure of my old friend

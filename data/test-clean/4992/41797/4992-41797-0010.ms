@@ -1,0 +1,1 @@
+always irritable cold indifferent he had grown rapidly more so as the years went on

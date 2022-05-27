@@ -1,0 +1,1 @@
+do we really know the mountain well when we are not acquainted with the cavern

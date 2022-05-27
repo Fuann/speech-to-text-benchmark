@@ -1,0 +1,1 @@
+recognition in this sense does not necessarily involve more than a habit of association the kind of object we are seeing at the moment is associated with the word cat or with an auditory image of purring or whatever other characteristic we may happen to recognize in the cat of the moment

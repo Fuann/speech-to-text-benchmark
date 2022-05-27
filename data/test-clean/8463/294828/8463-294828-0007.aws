@@ -1,0 +1,1 @@
+classifying was everything to him so he knew nothing else well versed in the theory of classification he was poorly versed in its practical application and i doubt that he could tell a sperm whale from a baleen whale

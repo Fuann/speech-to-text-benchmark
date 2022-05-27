@@ -1,0 +1,1 @@
+i believe in the training of people to their highest capacity the englishman here heartily seconded him

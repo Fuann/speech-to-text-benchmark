@@ -1,0 +1,1 @@
+he would be like a philologist refusing to examine a fact in language a philosopher hesitating to scrutinize a fact in humanity

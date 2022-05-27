@@ -1,0 +1,1 @@
+and he made a little dip of his cane towards brandon hall over his shoulder

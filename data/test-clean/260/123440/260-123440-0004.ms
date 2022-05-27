@@ -1,0 +1,1 @@
+alice took up the fan and gloves and as the hall was very hot she kept fanning herself all the time she went on talking dear dear how queer everything is to day

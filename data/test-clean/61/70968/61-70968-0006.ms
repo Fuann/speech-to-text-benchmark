@@ -1,0 +1,1 @@
+but then the picture was gone as quickly as it came

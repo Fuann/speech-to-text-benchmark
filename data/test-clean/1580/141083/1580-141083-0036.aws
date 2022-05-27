@@ -1,0 +1,1 @@
+holmes headed out on his open palm in the glare of the electric light

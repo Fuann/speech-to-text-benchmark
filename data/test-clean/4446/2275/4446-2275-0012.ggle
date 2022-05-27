@@ -1,0 +1,1 @@
+she looked at his heavy shoulders and big determined head thrust forward like a catapult and leash

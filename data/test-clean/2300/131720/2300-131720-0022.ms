@@ -1,0 +1,1 @@
+meanwhile he had called upon me to make a report of the three wire system known in england as the hopkinson both doctor john hopkinson and mr edison being independent inventors at practically the same time

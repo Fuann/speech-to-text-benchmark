@@ -1,0 +1,1 @@
+it has been my privilege to tread the soil of many lands to observe the customs and study the habits of more nations than one and i have yet to find the place and meet the people where and with whom the purity of man and woman is held more precious than among the maligned mormons in the mountain valleys of the west

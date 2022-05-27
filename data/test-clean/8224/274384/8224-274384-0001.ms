@@ -1,0 +1,1 @@
+the scottish generals and commissioners affected great surprise on the appearance of the king and though they paid him all the exterior respect due to his dignity they instantly set a guard upon him under colour of protection and made him in reality a prisoner

@@ -1,0 +1,1 @@
+four or five of the latter only lingered about the door of the prison of uncas weary but close observers of the manner of their captive

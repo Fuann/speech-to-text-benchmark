@@ -1,0 +1,1 @@
+her feeble health gave her her yielding manner for she could never oppose any one without gathering up all her strength for the struggle

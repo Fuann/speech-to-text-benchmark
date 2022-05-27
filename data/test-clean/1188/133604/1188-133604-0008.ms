@@ -1,0 +1,1 @@
+for believe me the final philosophy of art can only ratify their opinion that the beauty of a robin is to be read and of a grass plot to be green and the best skill of art is an instantly seizing on the manifold deliciousness of light which you can only seize by precision of instantaneous touch

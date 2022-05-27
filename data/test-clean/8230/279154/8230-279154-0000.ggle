@@ -1,0 +1,1 @@
+the analysis of knowledge will occupy us until the end of the thirteenth lecture and is the most difficult part of our whole enterprise

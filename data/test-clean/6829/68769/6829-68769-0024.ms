@@ -1,0 +1,1 @@
+old will is a fine fellow but poor and helpless since missus rogers had her accident

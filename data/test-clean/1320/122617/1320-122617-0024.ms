@@ -1,0 +1,1 @@
+but hawkeye who was too much occupied with his own thoughts to note the movement continued speaking more to himself than to his companion

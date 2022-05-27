@@ -1,0 +1,1 @@
+in this connection it should be mentioned that the association of edison illuminating companies in the same year adopted resolutions unanimously to the effect that the edison meter was accurate and that its use was not expensive for stations above one thousand lights and that the best financial results were invariably secured in a station selling current by meter

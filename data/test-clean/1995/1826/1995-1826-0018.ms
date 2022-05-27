@@ -1,0 +1,1 @@
+her regard shifted to the green stalks and leaves again and she started to move away

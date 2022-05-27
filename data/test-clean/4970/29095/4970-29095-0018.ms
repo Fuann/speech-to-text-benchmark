@@ -1,0 +1,1 @@
+ruth asked the enthusiasts if they would like to live in such a sounding mausoleum with its great halls and echoing rooms and no comfortable place in it for the accommodation of any body

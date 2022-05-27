@@ -1,0 +1,1 @@
+whatever appeal to her sense of beauty was straightway transferred to paper or canvas

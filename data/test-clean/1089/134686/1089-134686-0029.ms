@@ -1,0 +1,1 @@
+on friday confession will be heard all the afternoon after beads

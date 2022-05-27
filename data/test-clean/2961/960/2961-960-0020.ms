@@ -1,0 +1,1 @@
+and hence we find the same sort of clumsiness in the timaeus of plato which characterizes the philosophical poem of lucretius

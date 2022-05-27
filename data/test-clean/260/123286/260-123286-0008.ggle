@@ -1,0 +1,1 @@
+therefore don't talk to me about views and prospects

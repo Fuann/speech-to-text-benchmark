@@ -1,0 +1,1 @@
+my friend did not appear to be depressed by his failure but shrugged his shoulders in half humorous resignation

@@ -1,0 +1,1 @@
+you left him in a chair you say which chair by the window there

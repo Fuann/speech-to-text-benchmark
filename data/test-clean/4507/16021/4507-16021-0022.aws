@@ -1,0 +1,1 @@
+there is the slang of the affected lady as well as of the press users

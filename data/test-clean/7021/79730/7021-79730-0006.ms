@@ -1,0 +1,1 @@
+the mother in managing the case in this way relies partly on convincing the reason of the child and partly on an appeal to her affection

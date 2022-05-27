@@ -1,0 +1,1 @@
+he obtained the desired speed and load with a friction break also regulator of speed but waited for an indicator to verify it

@@ -1,0 +1,1 @@
+this truth which i have learned from her lips is confirmed by his face in which we have both beheld that of our sun

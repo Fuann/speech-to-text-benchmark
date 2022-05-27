@@ -1,0 +1,1 @@
+it was better for him to think the girl unfeeling than to know the truth

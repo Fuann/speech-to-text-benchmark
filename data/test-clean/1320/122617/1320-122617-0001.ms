@@ -1,0 +1,1 @@
+in his return to the camp his acute and practised intellects were intently engaged in devising means to counteract a watchfulness and suspicion on the part of his enemies that he knew were in no degree inferior to his own

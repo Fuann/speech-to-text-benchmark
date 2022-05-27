@@ -1,0 +1,1 @@
+the waves of brooklyn and every part of new york bordering the east river were crowded with curiosity seekers

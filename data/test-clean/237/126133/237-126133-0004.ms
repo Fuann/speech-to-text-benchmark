@@ -1,0 +1,1 @@
+that she could only see froncie for just one moment

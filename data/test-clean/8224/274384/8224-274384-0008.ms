@@ -1,0 +1,1 @@
+the good natured audience in pity to fallen majesty showed for once greater deference to the king than to the minister and sung the psalm which the former had called for

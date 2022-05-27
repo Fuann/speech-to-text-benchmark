@@ -1,0 +1,1 @@
+socrates begins the timers with a summary of the republic

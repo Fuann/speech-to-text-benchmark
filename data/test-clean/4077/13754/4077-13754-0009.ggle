@@ -1,0 +1,1 @@
+at the inception of plural marriage among the latter day saints there was no law national or state against its practice

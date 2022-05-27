@@ -1,0 +1,1 @@
+never did he object to buckling up his suitcase for any country whatever china or the congo no matter how far off it was

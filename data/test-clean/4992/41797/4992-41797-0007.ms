@@ -1,0 +1,1 @@
+he gave up his position and shut the family up in that tummy of a house so that he could study his books

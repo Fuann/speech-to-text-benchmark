@@ -1,0 +1,1 @@
+their eyes were from the first turned in anticipation toward the evening sun not merely that the work of proselyting should be carried on in the west but that the headquarters of the church should be their established

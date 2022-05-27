@@ -1,0 +1,1 @@
+she was young untried nervous it was a vision of serious duties and little company of really great loneliness

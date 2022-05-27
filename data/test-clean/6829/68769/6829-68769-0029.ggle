@@ -1,0 +1,1 @@
+it's a stock company in rich

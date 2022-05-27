@@ -1,0 +1,1 @@
+there is no logical impossibility in the hypothesis that the world sprang into being five minutes ago exactly as it then was with the population that remembered a wholly unreal past

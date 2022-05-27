@@ -1,0 +1,1 @@
+each of us is lashed to some part of the raft

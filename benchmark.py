@@ -1,5 +1,6 @@
 import math
 import os
+import sys
 import random
 from argparse import ArgumentParser
 from collections import namedtuple
@@ -11,7 +12,7 @@ import editdistance
 from dataset import *
 from engine import *
 
-WorkerResult = namedtuple('WorkerResult', ['num_errors', 'num_words', 'rtf'])
+WorkerResult = namedtuple('WorkerResult', ['num_errors', 'num_words', 'rtf', 'hyps'])
 
 
 def process(
@@ -25,9 +26,9 @@ def process(
 
     error_count = 0
     word_count = 0
+    hyps = ''
     for index in indices:
         audio_path, ref_transcript = dataset.get(index)
-
         transcript = engine.transcribe(audio_path)
 
         ref_words = ref_transcript.strip('\n ').lower().split()
@@ -36,9 +37,12 @@ def process(
         error_count += editdistance.eval(ref_words, words)
         word_count += len(ref_words)
 
+        # output hyp
+        hyps += os.path.basename(audio_path).strip('.flac') + " " + transcript.upper() + "\n"
+
     engine.delete()
 
-    return WorkerResult(num_errors=error_count, num_words=word_count, rtf=engine.rtf())
+    return WorkerResult(num_errors=error_count, num_words=word_count, rtf=engine.rtf(), hyps=hyps)
 
 
 def main():
@@ -46,6 +50,7 @@ def main():
     parser.add_argument('--engine', required=True, choices=[x.value for x in Engines])
     parser.add_argument('--dataset', required=True, choices=[x.value for x in Datasets])
     parser.add_argument('--dataset-folder', required=True)
+    parser.add_argument('--output-folder', required=True)
     parser.add_argument('--aws-profile')
     parser.add_argument('--azure-speech-key')
     parser.add_argument('--azure-speech-location')
@@ -59,6 +64,7 @@ def main():
     parser.add_argument('--num-workers', type=int, default=os.cpu_count())
     args = parser.parse_args()
 
+    dataset_name = args.dataset
     args.dataset = Datasets[args.dataset]
     args.engine = Engines[args.engine]
 
@@ -125,8 +131,19 @@ def main():
     num_words = sum(x.num_words for x in res)
     rtf = sum(x.rtf for x in res) / len(res)
 
-    print(f'WER: {(100 * float(num_errors) / num_words):.2f}')
-    print(f'RTF: {rtf}')
+    output = os.path.join(args.output_folder, dataset_name)
+    if not os.path.exists(output):
+        os.makedirs(output)
+
+    # output wer
+    with open(output + '/wer', "w") as f:
+        f.write(f'WER: {(100 * float(num_errors) / num_words):.2f}\n')
+        f.write(f'RTF: {rtf}')
+
+    # output hyp
+    with open(output + '/hyp', "w") as f:
+        for x in res:
+            f.write(x.hyps)
 
 
 if __name__ == '__main__':

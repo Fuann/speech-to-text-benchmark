@@ -1,0 +1,1 @@
+marie picked cherries and saying softly to herself stripping one glittering ranch after another shivering when she caught a shower of rain drops on her neck and hair

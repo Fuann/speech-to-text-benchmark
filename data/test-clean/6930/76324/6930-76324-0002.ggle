@@ -1,0 +1,1 @@
+the poor little things cried cynthia think of them having been turned to the wall all these years

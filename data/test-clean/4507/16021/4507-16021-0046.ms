@@ -1,0 +1,1 @@
+each day has its own great grief for its little care

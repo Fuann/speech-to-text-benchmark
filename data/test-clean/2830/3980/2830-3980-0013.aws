@@ -1,0 +1,1 @@
+he mentions the apostles first because they were appointed directly by god

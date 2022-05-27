@@ -1,0 +1,1 @@
+then the church was disincorporated and its property both real and personal confiscated and associated to the government of the united states and although the personal property was soon restored real estate of great value long lay in the hands of the courts receiver and the mormon church had to pay the national government high rental on its own property

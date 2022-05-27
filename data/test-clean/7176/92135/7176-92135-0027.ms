@@ -1,0 +1,1 @@
+lady larkspurs starts suddenly and turns toward him

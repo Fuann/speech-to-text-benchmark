@@ -1,0 +1,1 @@
+on arriving at home at my own residence i found that our salon was filled with a brilliant company

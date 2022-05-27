@@ -1,0 +1,1 @@
+they left him then for the jailer arrived to unlock the door and escort them to the office

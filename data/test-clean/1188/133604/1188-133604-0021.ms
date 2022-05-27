@@ -1,0 +1,1 @@
+it will be wholly impossible for you to retain the tranquility of temper and felicity of faith necessary for noble purest painting unless you are actively engaged in promoting the felicity and peace of practical life

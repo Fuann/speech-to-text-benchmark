@@ -1,0 +1,1 @@
+a ring of amethyst i could not wear here plainer to my sight then that first kiss

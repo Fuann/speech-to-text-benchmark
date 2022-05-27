@@ -1,0 +1,1 @@
+he doesn't say exactly what it is said ruth a little dubiously but it's something about land and railroads and the nose father that fortunes are made nobody knows exactly how in a new country

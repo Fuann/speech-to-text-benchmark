@@ -1,0 +1,1 @@
+i know the first letter i wrote to you was all senseless trash from beginning to end but i am not altogether the idle dreaming being it would seem to denote

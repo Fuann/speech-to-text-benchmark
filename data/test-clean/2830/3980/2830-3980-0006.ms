@@ -1,0 +1,1 @@
+against these boasting false apostles paul boldly defends his apostolic authority in ministry

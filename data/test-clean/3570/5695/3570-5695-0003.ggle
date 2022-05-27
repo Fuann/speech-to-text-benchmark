@@ -1,0 +1,1 @@
+in the communities of the western culture this point is at present found among the lower middle class

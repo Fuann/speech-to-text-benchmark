@@ -1,0 +1,1 @@
+this would be an easy way of doing it but it would not be the best way for the reason that it is too easy to call attention to itself

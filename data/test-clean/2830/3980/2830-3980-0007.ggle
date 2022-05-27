@@ -1,0 +1,1 @@
+as the ambassador of a government is honored for his office and not for his private person so the minister of christ should exalt his office in order to gain authority among men

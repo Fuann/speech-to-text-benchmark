@@ -1,0 +1,1 @@
+the first of these touches conveyed that the written statement took up the tail at a point after it had in a manner begun

@@ -1,0 +1,1 @@
+brighter than early dawn's most brilliant dye are blown clear bands of color through the sky that swirl and sweep and meat to break and foam like rainbow villes upon a bubble's dome

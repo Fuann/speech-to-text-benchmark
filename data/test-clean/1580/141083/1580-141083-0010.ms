@@ -1,0 +1,1 @@
+i gave him a little brandy and left him collapsed in a chair while i made a most careful examination of the room

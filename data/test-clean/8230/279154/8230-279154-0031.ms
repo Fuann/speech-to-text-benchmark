@@ -1,0 +1,1 @@
+they give laws according to which images of past occurrences come into our minds but do not discuss our belief that these images refer to past occurrences which is what constitutes knowledge memory

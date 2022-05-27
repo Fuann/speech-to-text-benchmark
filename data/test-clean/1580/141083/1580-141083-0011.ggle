@@ -1,0 +1,1 @@
+a broken tip of lead was lying there also

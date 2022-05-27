@@ -1,0 +1,1 @@
+to the young american here or elsewhere the paths to fortune are innumerable and all open there is invitation in the air and success in all his wide horizon

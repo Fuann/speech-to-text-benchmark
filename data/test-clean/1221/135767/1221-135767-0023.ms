@@ -1,0 +1,1 @@
+there were a few rose bushes however and a number of apple trees probably the descendants of those planted by the reverend mr blackstone the first settler of the peninsula that half mythological personage who rides through our early annals seated on the back of a bull

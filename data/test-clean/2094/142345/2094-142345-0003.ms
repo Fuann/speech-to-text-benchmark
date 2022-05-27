@@ -1,0 +1,1 @@
+a large open fireplace with rusty dogs in it and a bearer boarded floor at the far end fleeces of wool stacked up in the middle of the floor some empty corn bags

@@ -1,0 +1,1 @@
+they do not go where the enemies of the gospel predominate they go where the christians are

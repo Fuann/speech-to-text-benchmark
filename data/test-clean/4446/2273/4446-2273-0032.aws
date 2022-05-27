@@ -1,0 +1,1 @@
+he stood a little behind her and tried to steady himself as he said it's soft and misty see how white the stars are

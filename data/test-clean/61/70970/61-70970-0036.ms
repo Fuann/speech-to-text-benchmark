@@ -1,0 +1,1 @@
+robin fitzooth saw that his doubts of warrenton had been unfair and he became ashamed of himself for harbouring them

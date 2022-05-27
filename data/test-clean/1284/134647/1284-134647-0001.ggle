@@ -1,0 +1,1 @@
+the edict of milan the great charter of toleration had confirmed to each individual of the roman world the privilege of choosing and professing his own religion

@@ -1,0 +1,1 @@
+idle and embittering finely to argue against his own dispassionate certitude that the commandment of love bade us not to love our neighbor as ourselves with the same amount and intensity of love but to love him as ourselves with the same kind of love

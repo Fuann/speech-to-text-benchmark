@@ -1,0 +1,1 @@
+federal judges and united states attorneys in utah who were not mormons nor lovers of mormonism refused to entertain complaints or prosecute cases under the law because of its manifest injustice and inadequacy

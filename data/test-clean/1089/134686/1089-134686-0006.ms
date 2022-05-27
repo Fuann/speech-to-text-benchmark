@@ -1,0 +1,1 @@
+the dull light fell more faintly upon the page wherein another equation began to unfold itself slowly and to spread abroad its widening tale

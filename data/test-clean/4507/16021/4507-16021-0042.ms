@@ -1,0 +1,1 @@
+it is black in misfortune it is black or still in crime these two black knesses amalgamated composed slang

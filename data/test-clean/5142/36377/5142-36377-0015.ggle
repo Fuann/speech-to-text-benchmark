@@ -1,0 +1,1 @@
+our first impressions of people are in nine cases out of ten the right impressions

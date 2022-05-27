@@ -1,0 +1,1 @@
+now this knife was a splendid one though half the blade was gone and the handle was a little cracked and anders knew that one is almost a man as soon as one has a jackknife

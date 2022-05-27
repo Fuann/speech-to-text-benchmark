@@ -1,0 +1,1 @@
+from the norwegian graveyard one looks out over a vast checkerboard marked off in squares of wheat and corn light and dark dark and light

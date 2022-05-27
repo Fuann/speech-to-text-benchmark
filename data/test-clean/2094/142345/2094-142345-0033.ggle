@@ -1,0 +1,1 @@
+when she had that bad illness and i was only eleven years old she used to say you'll have a friend on earth in your aunt rachel if i'm taken from you for she has a kind heart and i'm sure i've found it so

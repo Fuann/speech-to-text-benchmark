@@ -1,0 +1,1 @@
+the arrow pierced his heart and wounded him mortally

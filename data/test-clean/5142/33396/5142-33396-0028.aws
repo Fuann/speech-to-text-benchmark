@@ -1,0 +1,1 @@
+on a bench in a far corner where a dozen people huddled together

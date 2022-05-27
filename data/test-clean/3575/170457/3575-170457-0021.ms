@@ -1,0 +1,1 @@
+i thought it therefore my duty when i left school to become a governess

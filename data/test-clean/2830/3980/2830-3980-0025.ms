@@ -1,0 +1,1 @@
+by his resurrection christ won the victory over law sin flesh whirled devil's death hell and every evil

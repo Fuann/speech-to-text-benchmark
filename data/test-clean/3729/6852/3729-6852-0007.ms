@@ -1,0 +1,1 @@
+two years before her death i saw her perform the character of marianne in the comedy of marivaux and in spite of her age and declining health the illusion was complete

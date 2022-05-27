@@ -1,0 +1,1 @@
+plato had not the command of his materials which would have enabled him to produce a perfect work of art

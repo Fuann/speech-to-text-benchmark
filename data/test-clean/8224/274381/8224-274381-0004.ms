@@ -1,0 +1,1 @@
+five hundred men more who had been levied by the covenanters were persuaded to embrace the royal cause and with this combined force he hastened to attack lord elko who lay at perth with an army of six thousand men assembled upon the first news of the irish invasion

@@ -1,0 +1,1 @@
+here lay the reading of the riddle with infinite work and pain some one had dug a canal from the lagoon to the creek into which the former had drained by a long and crooked way thus allowing it to empty directly

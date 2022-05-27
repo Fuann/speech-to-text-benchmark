@@ -1,0 +1,1 @@
+chingachgook had caught the look and motioning with his hand he bade him speak

@@ -1,0 +1,1 @@
+this was a formidable array of advantages slavery was playing with loaded dice

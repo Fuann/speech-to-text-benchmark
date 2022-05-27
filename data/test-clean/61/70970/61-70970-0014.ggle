@@ -1,0 +1,1 @@
+presently he crossed the floor of his room with decided step

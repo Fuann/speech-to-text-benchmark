@@ -1,0 +1,1 @@
+when this captain should have taken himself and his vessel back to england i would retire to a small farm which i possessed at the furthest side of the island and there in seclusion would i end my days

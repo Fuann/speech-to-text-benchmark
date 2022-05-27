@@ -1,0 +1,1 @@
+this differentiation is furthered by the inheritance of wealth and the consequent inheritance of gentility

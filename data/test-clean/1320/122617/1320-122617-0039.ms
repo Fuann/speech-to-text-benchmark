@@ -1,0 +1,1 @@
+the mohicans started on his feet and shook his shaggy covering as though the animal he counterfeited was about to make some desperate effort

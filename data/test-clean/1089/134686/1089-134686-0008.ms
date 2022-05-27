@@ -1,0 +1,1 @@
+the chaos in which his ardour extinguished itself was a cold indifferent knowledge of himself

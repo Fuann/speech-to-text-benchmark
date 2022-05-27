@@ -1,0 +1,1 @@
+the bed she too well remembered was there and above all the cabinet on which had stood the image she had taken away was still on the same spot

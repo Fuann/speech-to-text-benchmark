@@ -1,0 +1,1 @@
+every line in which the master traces it even where seemingly negligent it's lovely and set down with a meditative calmness which makes these two etchings capable of being placed beside the most tranquil work of holbein or duror

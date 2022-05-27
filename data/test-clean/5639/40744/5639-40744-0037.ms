@@ -1,0 +1,1 @@
+know then son of my heart that this fainting lady is your real bride i say real because she is the one whom you father and i have chosen for you and the portrait was a pretence

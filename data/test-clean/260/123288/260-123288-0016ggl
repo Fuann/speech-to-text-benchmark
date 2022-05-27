@@ -1,0 +1,1 @@
+i refer to the thermometer it indicates the figure is obliterated

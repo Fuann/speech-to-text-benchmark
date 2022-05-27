@@ -1,0 +1,1 @@
+this at once compels you to understand that the work is to be imaginative and decorative that it represents beautiful things in the clearest way but not under existing conditions and that in fact you are producing jewelers work rather than pictures

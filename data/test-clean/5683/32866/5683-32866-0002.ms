@@ -1,0 +1,1 @@
+but don't these very wise things sometimes turn out very foolishly

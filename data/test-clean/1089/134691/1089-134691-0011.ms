@@ -1,0 +1,1 @@
+their piety would be like their names like their faces like their clothes and was idle for him to tell himself that their humble and contrite hearts it might be paid a far richer tribute of devotion than his had ever been a gift tenfold more acceptable than his elaborate adoration

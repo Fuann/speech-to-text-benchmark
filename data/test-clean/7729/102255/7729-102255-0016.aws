@@ -1,0 +1,1 @@
+the governor on his part becoming doubtful of the legality of employing missouri militia to enforce kansas laws was also eager to secure the help of federal troops

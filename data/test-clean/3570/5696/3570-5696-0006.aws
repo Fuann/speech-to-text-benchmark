@@ -1,0 +1,1 @@
+as used in the speech of everyday life the word carries an undertone of deprecation

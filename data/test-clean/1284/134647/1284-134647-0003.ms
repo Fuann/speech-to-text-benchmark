@@ -1,0 +1,1 @@
+constantine easily believed that the heretics who presumed to dispute his opinions or to oppose his commands were guilty of the most absurd and criminal obstinacy and that a seasonable application of moderate severities might save those unhappy men from the danger of an everlasting condemnation

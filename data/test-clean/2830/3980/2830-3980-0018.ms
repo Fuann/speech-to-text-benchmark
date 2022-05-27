@@ -1,0 +1,1 @@
+i did not then realize the importance of the ministry

@@ -1,0 +1,1 @@
+paul declares that the false apostles were called or sent neither by men nor by man

@@ -1,0 +1,1 @@
+the rector paused and then shaking his clasped hands before him went on

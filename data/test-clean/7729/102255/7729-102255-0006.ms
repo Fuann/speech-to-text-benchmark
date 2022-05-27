@@ -1,0 +1,1 @@
+common by way of the missouri river towns he fell first among border ruffian companionship and influences and perhaps having his inclinations already molded by his washington instructions his early impressions were decidedly adverse to the free state cause

@@ -1,0 +1,1 @@
+as a sample of the press comments against the brutality of the missourians i quote a paragraph from the quincy argus march sixteenth one thousand eight hundred and thirty nine

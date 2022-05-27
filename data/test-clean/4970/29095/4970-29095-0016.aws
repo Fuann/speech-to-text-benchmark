@@ -1,0 +1,1 @@
+ruth sat quite still for a time with face and tint and flushed it was out now

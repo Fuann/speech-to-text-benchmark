@@ -1,0 +1,1 @@
+for some years it was not found feasible to operate motors on alternating current circuits and that reason was often urged against it seriously

@@ -1,0 +1,1 @@
+the cunning man is afraid that his breath will blow upon his brothers and take away their courage too continued david improving the hint he received they must stand further off

@@ -1,0 +1,1 @@
+when a private in the eighth cavalry he had been on the point of quitting the army at twenty eight years of age but unexpectedly he had been appointed orderly to captain survitec

@@ -1,0 +1,1 @@
+this passage then bears out the fact that all men are sold under sin

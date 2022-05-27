@@ -1,0 +1,1 @@
+the guards had a terrible struggle with the goat which was loose in the room and still wanted to fight but finally they subdued the animal and then they took the booleroo out of the frame he was tied in and brought both him and the goat before queen trot who awaited them in the throne room of the palace

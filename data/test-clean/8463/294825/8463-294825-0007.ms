@@ -1,0 +1,1 @@
+even the supporting cast is shrewdly drawn professor erenaghs the career scientist caught in an ethical conflict conseil the compulsive classifier who supplies humorous tag lines for vernes fast facts the harpooner ned land a creature of constant appetites man as heroic animal

@@ -1,0 +1,1 @@
+his reception speech at westport in which he maintained the legality of the legislature and his determination to enforce their laws delighted his pro slavery auditors

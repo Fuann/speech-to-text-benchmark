@@ -1,0 +1,1 @@
+their contents had all boiled away leaving in the bottom of each kettle a few grains of fine white powder

@@ -1,0 +1,1 @@
+in the stern i carved the tail up almost as high as the head

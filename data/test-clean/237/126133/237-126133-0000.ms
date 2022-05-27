@@ -1,0 +1,1 @@
+here she would stay comforted and soothed among the lovely plants and rich exotics rejoicing the heart of old turner the gardener who sense polly's first rapturous entrance had taken her into his good graces for all time

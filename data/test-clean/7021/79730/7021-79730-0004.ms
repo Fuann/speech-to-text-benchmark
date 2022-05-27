@@ -1,0 +1,1 @@
+the mother as soon as the chase is so far turned that mary can no longer watch the expression of her continence goes away from the door with a smile of complacency and satisfaction on her face at the ingenuity and success of her little artifice

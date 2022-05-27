@@ -1,0 +1,1 @@
+their assumed character changed with their changing opportunities or necessities

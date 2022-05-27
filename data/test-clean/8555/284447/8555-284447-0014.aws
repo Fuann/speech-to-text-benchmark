@@ -1,0 +1,1 @@
+the idea of patching captain bill to a goat was vastly amusing to him and the more he thought of it the more he roared with laughter

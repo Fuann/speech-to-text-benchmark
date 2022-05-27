@@ -1,0 +1,1 @@
+there is a want of flow and often a defect of rhythm the meaning is sometimes obscure and there is a greater use of apposition and more of repetition than occurs in plato's earlier writings

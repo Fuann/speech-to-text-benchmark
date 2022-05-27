@@ -1,0 +1,1 @@
+it was specially suited for a trial plant also in the early days when a yield of six or eight lamps to the horsepower was considered subject for congratulation

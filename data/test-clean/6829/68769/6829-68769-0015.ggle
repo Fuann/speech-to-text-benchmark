@@ -1,0 +1,1 @@
+sometimes i'm that yearning for a smoke i'm nearly crazy and i don't know which is worse dying one way or the other

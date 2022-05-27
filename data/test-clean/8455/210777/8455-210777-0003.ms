@@ -1,0 +1,1 @@
+as i spoke i made him a gracious bow and i think i showed him by my mode of address that i did not bear any grudge as to my individual self

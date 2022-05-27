@@ -1,0 +1,1 @@
+she poured into the dish a quantity from each of these bottles

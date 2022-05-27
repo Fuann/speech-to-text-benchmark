@@ -1,0 +1,1 @@
+he was soft hearted and impetuous said beth and being in love he didn't stop to count the cost

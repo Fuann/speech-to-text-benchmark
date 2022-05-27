@@ -1,0 +1,1 @@
+rachel's pale and sharpened features and dilated eye struck her with a painful surprise

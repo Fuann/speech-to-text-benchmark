@@ -1,0 +1,1 @@
+private persons who at least the free state hotel vainly besought the various authorities to present the destruction of their property

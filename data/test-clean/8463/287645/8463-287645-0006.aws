@@ -1,0 +1,1 @@
+the doctor who attended the injured creature in this case was simply told that she slipped and fell down the stairs as she was coming down

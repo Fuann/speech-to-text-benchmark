@@ -1,0 +1,1 @@
+thou canst wait through sorrow and sickness to bring souls to touch and think it soon when others cry too late

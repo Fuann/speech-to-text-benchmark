@@ -1,0 +1,1 @@
+since last thursday i gizzle have been the lawful boolaroo of the blue country but now that you are conquered by queen trot i suppose i am conquered too and you have no booleroo at all

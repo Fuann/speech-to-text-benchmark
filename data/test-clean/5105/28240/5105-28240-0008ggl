@@ -1,0 +1,1 @@
+a narrow channel formed a passage through the ridge of rocks that protected it from the open sea and which even in the roughest weather would ensure the calmness of its waters

@@ -1,0 +1,1 @@
+if you will give us your promise to meet captain adelaide's here at this time to morrow we will stretch a point and delay the departure of the john wright for twenty four hours

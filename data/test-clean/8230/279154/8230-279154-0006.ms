@@ -1,0 +1,1 @@
+the behaviorist who attempts to make psychology a record of behavior has to trust his memory in making the record

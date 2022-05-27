@@ -1,0 +1,1 @@
+cried he waving the lantern before him to make sure that these were no ghosts in front of him

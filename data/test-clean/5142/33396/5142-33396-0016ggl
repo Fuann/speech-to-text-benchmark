@@ -1,0 +1,1 @@
+so we hurried the coast of norway

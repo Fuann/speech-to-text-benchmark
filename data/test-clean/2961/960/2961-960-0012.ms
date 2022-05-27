@@ -1,0 +1,1 @@
+many if not all the elements of the pre socratic philosophy are included in the timaeus

@@ -1,0 +1,1 @@
+in winter when the snow lay glittering on the ground a hare would often come leaping along and jump right over the little tree

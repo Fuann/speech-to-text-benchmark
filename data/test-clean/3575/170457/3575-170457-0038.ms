@@ -1,0 +1,1 @@
+and meantime i know the greatness of jehovah i acknowledge the perfection of his word i adore the purity of the christian faith my theory is right my practice horribly wrong

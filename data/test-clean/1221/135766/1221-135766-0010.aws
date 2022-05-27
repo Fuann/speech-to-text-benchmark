@@ -1,0 +1,1 @@
+it was a look so intelligent yet inexplicable perverse sometimes so malicious but generally accompanied by a wild flow of spirits that hester could not help questioning at such moments whether pearl was a human child

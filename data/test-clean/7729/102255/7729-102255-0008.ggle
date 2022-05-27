@@ -1,0 +1,1 @@
+all the territorial dignitaries were present governor shannon presided john calhoun the surveyor general made the principal speech a denunciation of the abolitionist supporting the topeka movement chief justice lecompt dignified the occasion with approving remarks

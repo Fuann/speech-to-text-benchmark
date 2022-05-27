@@ -1,0 +1,1 @@
+they were both remembering what the woman had said when she took the money god gave you a happy love

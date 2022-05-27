@@ -1,0 +1,1 @@
+we believe in a literal resurrection and an actual hereafter in which future states shall be recognized every sanctified and authorized relationship existing here on earth of parent and child brother and sister husband and wife

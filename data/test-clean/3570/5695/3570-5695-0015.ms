@@ -1,0 +1,1 @@
+the result is a great mobility of the labour employed in printing perhaps greater than in any other equally well defined and considerable body of workmen

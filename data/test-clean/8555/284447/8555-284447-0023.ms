@@ -1,0 +1,1 @@
+i couldn't shiver much being bound so tight but when i'm loose i mean to have just one good shiver to relieve my feelings

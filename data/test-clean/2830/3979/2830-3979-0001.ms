@@ -1,0 +1,1 @@
+the condition is that i will be permitted to make luther talk american streamline him so to speak because you will never get people whether in or outside the lutheran church actually to read luther unless we make him talk as he would talk to day to americans

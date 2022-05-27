@@ -1,0 +1,1 @@
+hotel a place where a guest often gives up good dollars for poor quarters

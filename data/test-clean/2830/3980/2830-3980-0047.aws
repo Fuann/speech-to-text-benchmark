@@ -1,0 +1,1 @@
+to do so is to lose god altogether because god becomes intolerable when we seek to measure and to comprehend his infinite majesty

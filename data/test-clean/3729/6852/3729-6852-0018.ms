@@ -1,0 +1,1 @@
+i sit down at a small table a waiter comes immediately to inquire my wishes

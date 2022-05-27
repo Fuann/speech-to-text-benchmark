@@ -1,0 +1,1 @@
+still her heart had received a shock in the perception of anne's delicacy and all these holidays she watched over her with the longing fond anxiety which is so full of sudden pangs of fear

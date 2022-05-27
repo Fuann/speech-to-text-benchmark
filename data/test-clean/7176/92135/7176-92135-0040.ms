@@ -1,0 +1,1 @@
+hostess replaces lump and inclines empty teapot over tray for a moment then hence in a cup painted brown inside those deceiving the gentleman with the telescope in the upper circle

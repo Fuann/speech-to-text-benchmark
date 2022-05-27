@@ -1,0 +1,1 @@
+an article may be useful and wasteful both and its utility to the consumer may be made up of use and waste in the most varying proportions

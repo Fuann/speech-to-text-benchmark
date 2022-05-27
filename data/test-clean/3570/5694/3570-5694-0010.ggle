@@ -1,0 +1,1 @@
+the objection of course presents itself that expenditure on women's dress and household paraphernalia is an obvious exception to this rule but it will appear in the sequel that this exception is much more obvious than substantial

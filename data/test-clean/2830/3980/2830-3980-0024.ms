@@ -1,0 +1,1 @@
+in this whole epistle of paul treats of the resurrection of christ

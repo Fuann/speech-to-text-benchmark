@@ -1,0 +1,1 @@
+the axe struck deep into the very pith the tree fell to the earth with a sigh he felt a pang it was like a swoon he could not think of happiness for he was sorrowful at being separated from his home from the place where he had sprung up

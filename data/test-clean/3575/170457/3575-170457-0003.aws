@@ -1,0 +1,1 @@
+surely it must be because we're in danger of loving each other too well of losing sight of the creator and idolatry of the creature

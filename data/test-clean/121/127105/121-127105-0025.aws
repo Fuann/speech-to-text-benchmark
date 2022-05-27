@@ -1,0 +1,1 @@
+the departing ladies who had said they would stay didn't of course thank heaven stay they departed in consequence of arrangements made in a rage of curiosity as they professed produced by the touches with which he had already worked us up

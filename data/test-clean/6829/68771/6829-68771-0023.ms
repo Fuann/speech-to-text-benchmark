@@ -1,0 +1,1 @@
+you speak like an educated person said beth wonderingly where is your home

@@ -1,0 +1,1 @@
+in both these high mythical subjects the surrounding nature though suffering is still dignified and beautiful

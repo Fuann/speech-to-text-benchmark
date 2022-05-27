@@ -1,0 +1,1 @@
+the principle employed in the edison electrolytic meter is that which exemplifies the power of electricity to decompose a chemical substance

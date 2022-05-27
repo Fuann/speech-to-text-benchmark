@@ -1,0 +1,1 @@
+the world is all there just as it used to be but i can't get at it anymore

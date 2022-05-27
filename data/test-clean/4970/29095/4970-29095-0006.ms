@@ -1,0 +1,1 @@
+is thy father willing they should go away to a school of the world's people

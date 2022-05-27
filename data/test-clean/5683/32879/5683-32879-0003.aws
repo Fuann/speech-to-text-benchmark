@@ -1,0 +1,1 @@
+women can hide their pain better than we men and bear it better too except when shame drops fire into the dreadful chalice

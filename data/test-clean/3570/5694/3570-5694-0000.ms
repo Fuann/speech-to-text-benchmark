@@ -1,0 +1,1 @@
+but already at a point in economic evolution far antedating the emergence of the lady's specialized consumption of goods as an evidence of pecuniary strength had begun to work out in a more or less celebrate system

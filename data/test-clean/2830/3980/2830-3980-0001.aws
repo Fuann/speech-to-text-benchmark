@@ -1,0 +1,1 @@
+they said to the galatians you have no right to think highly of paul

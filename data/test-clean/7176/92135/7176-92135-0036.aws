@@ -1,0 +1,1 @@
+the crowd drifts off leaving the hero and heroine alone in the middle of the stage and then you can begin

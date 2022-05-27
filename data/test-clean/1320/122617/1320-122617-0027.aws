@@ -1,0 +1,1 @@
+as soon as these dispositions were made the scout turned to david and gave him his parting instructions

@@ -1,0 +1,1 @@
+she spoke with a sudden energy which partook of fear and passion and flushed her thin cheek and made her languid eyes flash

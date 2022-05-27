@@ -1,0 +1,1 @@
+if beauty or comfort is achieved and it is a more or less fortuitous circumstance if they are they must be achieved by means and methods that commend themselves through the great economic law of wasted effort

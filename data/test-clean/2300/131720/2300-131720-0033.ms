@@ -1,0 +1,1 @@
+in december one thousand eight hundred and eighty eight mr wj jenks read an interesting paper before the american institute of electrical engineers on the six years of practical experience had up to that time with the meter then more generally in use than any other

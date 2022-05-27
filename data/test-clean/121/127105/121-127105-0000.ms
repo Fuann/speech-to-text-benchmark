@@ -1,0 +1,1 @@
+it was this observation that drew from douglas not immediately but later in the evening a reply that had the interesting consequence to which i call attention

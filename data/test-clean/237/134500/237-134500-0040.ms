@@ -1,0 +1,1 @@
+i pray for you but that's not the same as if you prayed yourself

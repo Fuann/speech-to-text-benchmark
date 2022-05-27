@@ -1,0 +1,1 @@
+i was to be taken away and carried to england or elsewhere or drowned upon the voyage it mattered not which

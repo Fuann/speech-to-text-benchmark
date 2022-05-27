@@ -1,0 +1,1 @@
+the description she gave of the coming reception to the women's political league was so humorous and diverting that they were both laughing heartily over the thing when the young people passed them and thus mr hopkins failed to notice who the occupants of the other vehicle were

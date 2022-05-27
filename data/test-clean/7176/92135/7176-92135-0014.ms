@@ -1,0 +1,1 @@
+if it be granted first that the thoughts of a certain character should be known to the audience and secondly that soliloquy or the habit of thinking aloud is in opposition to the modern stage technique halsall soliloquy be avoided without damage to the play

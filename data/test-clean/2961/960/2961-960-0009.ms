@@ -1,0 +1,1 @@
+the dialogue is primarily concerned with the animal creation including under this term the heavenly bodies and with man only as one among the animals

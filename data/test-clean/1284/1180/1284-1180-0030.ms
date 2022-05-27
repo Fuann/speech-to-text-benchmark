@@ -1,0 +1,1 @@
+when i found it i said to myself that it would do nicely for my servant girl for when she was brought to life she would not be proud nor haughty as the glass cat is for such a dreadful mixture of colors would discourage her from trying to be as dignified as the blue munchkins are

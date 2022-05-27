@@ -1,0 +1,1 @@
+the only cheerful conversation was the conversation across the table between naomi and me

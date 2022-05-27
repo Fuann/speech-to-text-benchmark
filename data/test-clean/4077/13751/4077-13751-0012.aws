@@ -1,0 +1,1 @@
+the lieutenant governor lilburn w boggs afterward governor was a pronounced mormon hater and throughout the period of the troubles he manifests his sympathy with the persecutors

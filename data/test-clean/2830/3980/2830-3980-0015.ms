@@ -1,0 +1,1 @@
+for a person to possess knowledge is not enough

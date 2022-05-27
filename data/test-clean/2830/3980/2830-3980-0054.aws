@@ -1,0 +1,1 @@
+that christ is very god is apparent in that paul ascribes to him divine powers equally with the father as for instance the power to dispense grace and peace

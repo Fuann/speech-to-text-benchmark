@@ -1,0 +1,1 @@
+he often stopped to examine the trees nor did he cross a rivulet without attentively considering the quantity the velocity and the color of its waters

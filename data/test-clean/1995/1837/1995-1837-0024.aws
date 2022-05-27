@@ -1,0 +1,1 @@
+for a while she lay in her chair in happy dreamy pleasure at sun and bird and tree

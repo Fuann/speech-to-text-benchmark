@@ -1,0 +1,1 @@
+but suddenly straight and swift as a diving cormorant he shot down into the torrent and disappeared beneath the surface

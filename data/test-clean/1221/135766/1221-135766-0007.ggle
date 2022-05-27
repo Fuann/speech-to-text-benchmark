@@ -1,0 +1,1 @@
+hester prynne nevertheless the loving mother of this one child ran little risk of erring on the side of undue severity

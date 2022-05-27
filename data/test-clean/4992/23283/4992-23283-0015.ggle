@@ -1,0 +1,1 @@
+is she not afraid that i will thwart her inclinations

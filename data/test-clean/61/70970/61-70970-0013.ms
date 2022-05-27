@@ -1,0 +1,1 @@
+there was no chance to alter his sleeping room to one nearer to game well's chamber

@@ -1,0 +1,1 @@
+however remembering what you told me namely that you had commanded the matter to a higher decision than ours and that's your resolve to submit with resignation to that decision whatever it might be i hold it my duty to yield also and to be silent and may be all for the best

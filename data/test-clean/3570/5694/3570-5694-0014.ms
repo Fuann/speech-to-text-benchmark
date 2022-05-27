@@ -1,0 +1,1 @@
+many of these affiliated gentlemen of leisure are at the same time lesser men of substance in their own right so that some of them are scarcely at all others only partially to be rated as vicarious consumers

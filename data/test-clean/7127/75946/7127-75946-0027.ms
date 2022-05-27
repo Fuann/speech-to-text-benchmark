@@ -1,0 +1,1 @@
+disdainful of his success of which madame showed no acknowledgement he thought of nothing but boldly regaining the market preference of the princess

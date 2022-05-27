@@ -1,0 +1,1 @@
+and lay me down in thy cold bed and leave my shining lot

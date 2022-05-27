@@ -1,0 +1,1 @@
+jack had been standing in the far corner of the room talking to eva and was now reduced to silence by his praises

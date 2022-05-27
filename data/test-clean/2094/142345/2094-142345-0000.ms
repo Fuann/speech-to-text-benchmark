@@ -1,0 +1,1 @@
+it is a very fine old place of red brick softened by a pale powdery lichen which has dispersed itself with happy irregularity so as to bring the red brick into terms of friendly companionship with the limestone ornaments surrounding the three gables the windows and the door place

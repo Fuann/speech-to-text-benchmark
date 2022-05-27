@@ -1,0 +1,1 @@
+if christian perfection be necessary to salvation i shall never be saved my heart is a very hotbed for sinful thoughts and when i decide on an action i scarcely remember to look to my redeemer for direction

@@ -1,0 +1,1 @@
+what you had best do my child is to keep it and pray to it that since it was a witness to your undoing it will gain to vindicate your cause by its righteous judgment

@@ -1,0 +1,1 @@
+fourteen of an hour afterwards he returned to the theater but it will be readily believed that it was only a powerful effort of reason over his great excitement that enabled him to go back or perhaps for love is thus strangely constituted he found that impossible even to remain much longer separated from the presence of one who had broken his heart

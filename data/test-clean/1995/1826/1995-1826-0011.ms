@@ -1,0 +1,1 @@
+here she was teaching dirty children and the smell of confused odors and bodily perspiration was to her at times unbearable

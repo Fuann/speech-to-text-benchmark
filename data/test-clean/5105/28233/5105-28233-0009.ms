@@ -1,0 +1,1 @@
+the bond of union thus affected could never be severed and although ben zeff's achievements had fairly earned him the right of retirement he firmly declined all honors or any pension that might part him from his superior officer

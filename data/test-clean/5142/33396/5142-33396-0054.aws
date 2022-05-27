@@ -1,0 +1,1 @@
+that is the best way to decide for the spear will always point somewhere and one thing is as good as another

@@ -1,0 +1,1 @@
+the wearers of uniforms and liveries may be roughly divided into two classes the free and the servile or the noble and the ignoble

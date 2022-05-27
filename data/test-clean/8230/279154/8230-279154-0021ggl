@@ -1,0 +1,1 @@
+remembering has to be a present occurrence in some way resembling or related to what is remembered

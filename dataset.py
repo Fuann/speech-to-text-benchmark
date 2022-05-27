@@ -14,6 +14,7 @@ class Datasets(Enum):
     LIBRI_SPEECH_TEST_CLEAN = 'LIBRI_SPEECH_TEST_CLEAN'
     LIBRI_SPEECH_TEST_OTHER = 'LIBRI_SPEECH_TEST_OTHER'
     TED_LIUM = 'TED_LIUM'
+    SPOKEN_TEST_2022_JAN28 = 'SPOKEN_TEST_2022_JAN28'
 
 
 class Dataset(object):
@@ -36,6 +37,8 @@ class Dataset(object):
             return LibriSpeechTestOtherDataset(folder)
         elif x == Datasets.TED_LIUM:
             return TEDLIUMDataset(folder)
+        elif x == Datasets.SPOKEN_TEST_2022_JAN28:
+            return SPOKEN_TEST_2022_JAN28(folder)
         else:
             raise ValueError(f"Cannot create {cls.__name__} of type `{x}`")
 
@@ -101,6 +104,39 @@ class CommonVoiceDataset(Dataset):
     def __str__(self) -> str:
         return 'CommonVoice'
 
+class SPOKEN_TEST_2022_JAN28(Dataset):
+    def __init__(self, folder: str):
+        self._data = list()
+        with open(folder, 'r') as f:
+            for x in f.readlines():
+                wav_path = x.split(' ', maxsplit=1)[0]
+                text = x.split(' ', maxsplit=1)[1]
+                flac_path = wav_path.replace('.wav', '.flac')
+                if not os.path.exists(flac_path):
+                    args = [
+                        'ffmpeg',
+                        '-loglevel quiet',
+                        '-i',
+                        wav_path,
+                        flac_path,
+                    ]
+                    subprocess.check_output(args)
+                # NOTE: skip long audio
+                #elif soundfile.read(flac_path)[0].size > 16000 * 60:
+                #    continue
+                try:
+                    self._data.append( (flac_path, text) )
+                except RuntimeError:
+                    continue
+
+    def size(self) -> int:
+        return len(self._data)
+
+    def get(self, index: int) -> Tuple[str, str]:
+        return self._data[index]
+
+    def __str__(self) -> str:
+        return 'SpokenTest2022Jan28'
 
 class LibriSpeechTestCleanDataset(Dataset):
     def __init__(self, folder: str):

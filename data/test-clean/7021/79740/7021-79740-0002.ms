@@ -1,0 +1,1 @@
+now delia contrived to obtain a great influence and ascendancy over the minds of the children by means of these dolls

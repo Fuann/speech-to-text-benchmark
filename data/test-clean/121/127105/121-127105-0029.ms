@@ -1,0 +1,1 @@
+there were plenty of people to help but of course the young lady who should go down as governess would be in supreme authority

@@ -1,0 +1,1 @@
+to celebrate the arrival of her son sylvia gave a splendid supper to which she had invited all her relatives and it was a good opportunity for me to make their acquaintance

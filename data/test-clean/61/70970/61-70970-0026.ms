@@ -1,0 +1,1 @@
+fitzooth's hand rested at last upon the top rung of a ladder and slowly the truth came to him

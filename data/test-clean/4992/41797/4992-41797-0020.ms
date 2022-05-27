@@ -1,0 +1,1 @@
+nancy's curly chestnut crop shone in the sun and olive's thick black plates looked blacker by contrast

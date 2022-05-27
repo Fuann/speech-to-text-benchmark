@@ -1,0 +1,1 @@
+that summer the rains had been so many and opportune that it was almost more than shibata and his man could do to keep up with the corn the orchard was a neglected wilderness

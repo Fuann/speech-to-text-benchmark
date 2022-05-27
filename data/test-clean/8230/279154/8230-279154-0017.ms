@@ -1,0 +1,1 @@
+there may be a specific feeling which could be called the feeling of past anness especially where immediate memory is concerned

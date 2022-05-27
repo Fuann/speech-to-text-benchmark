@@ -1,0 +1,1 @@
+but the proprietor appeared already to have relinquished as hopeless the effort to perpetuate on this side of the atlantic in a hard soil and amid the close struggle for subsistence the native english taste for ornamental gardening

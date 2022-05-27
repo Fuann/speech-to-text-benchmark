@@ -1,0 +1,1 @@
+what the latter day saints call celestial marriage is characteristic of the church and is in very general practice but of celestial marriage plurality of wives was an incident never an essential

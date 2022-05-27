@@ -1,0 +1,1 @@
+it's such a crush at the yearly meeting at arch st and then there's the row of sleek looking young men who lie in the curbstone and stare at us as we come out

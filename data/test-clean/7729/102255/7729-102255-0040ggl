@@ -1,0 +1,1 @@
+in this incident contrasting the creative and the destructive spirit of the factions the immigrant aid society of massachusetts finds its most honorable and triumphant vindication

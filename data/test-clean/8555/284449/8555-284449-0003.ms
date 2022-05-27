@@ -1,0 +1,1 @@
+when the blue scan saw gitca sizzled they raised another great shout for he was the favorite of the soldiers and very popular with all the people

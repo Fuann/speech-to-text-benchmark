@@ -1,0 +1,1 @@
+we sometimes have images that are by no means peculiarly vague which yet we do not trust for example under the influence of fatigue we may see a france face vividly and clearly but horribly distorted

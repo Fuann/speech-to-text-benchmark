@@ -1,0 +1,1 @@
+their sufferings have never yet been fitly chronicled by human scribe

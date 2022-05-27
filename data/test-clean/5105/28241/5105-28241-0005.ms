@@ -1,0 +1,1 @@
+for a few miles she followed the line hitherto presumably occupied by the coast of algeria but no land appeared to the south

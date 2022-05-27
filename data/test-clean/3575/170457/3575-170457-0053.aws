@@ -1,0 +1,1 @@
+but anne had begun to suffer just before the holidays and charlotte watched over her younger sisters with a jealous vigilance of some wild creature that changes her very nature if danger threatens her young

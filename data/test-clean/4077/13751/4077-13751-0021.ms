@@ -1,0 +1,1 @@
+it will be observed that an organized mob aided by many of the civil and military officers of missouri with governor boggs at their head have been the prominent actors in this business incited too it appears against the mormons by political hatred and by the additional motives of plunder and revenge

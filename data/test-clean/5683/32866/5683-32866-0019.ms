@@ -1,0 +1,1 @@
+the mystery of their origin their capacity for evolving latent faculties of crime and the steady vitality with which they survived the hearse and speak their deep mouth malignancies in every newborn generation have associated them somehow in my mind with a spell of life exceeding and distinct from human and the special satanic action

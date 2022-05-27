@@ -1,0 +1,1 @@
+i can no more help spending my life in trying to do what i can for the souls of others then you could help running if you heard little toddy crying at the other end of the house the voice would go to your heart you would think the dear child was in trouble or in danger and you couldn't rest without running to help her and comfort her

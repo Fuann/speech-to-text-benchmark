@@ -1,0 +1,1 @@
+the question is which of the two methods will most effectively reach the persons whose convictions it is desired to affect

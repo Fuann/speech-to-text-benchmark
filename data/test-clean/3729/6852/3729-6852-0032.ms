@@ -1,0 +1,1 @@
+simply by stopping her carriage two or three times before the shop to have her snuff box filled and by saying aloud to the young girl who handed back the box that her snuff was the very best in paris

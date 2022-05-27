@@ -1,0 +1,1 @@
+in the old badly made play it was frequently necessary for one of the characters to take the audience into his confidence

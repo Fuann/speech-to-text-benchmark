@@ -1,0 +1,1 @@
+someone else told a story not particularly effective which i saw he was not following

@@ -1,0 +1,1 @@
+what would become of your gun were i to kidnap you

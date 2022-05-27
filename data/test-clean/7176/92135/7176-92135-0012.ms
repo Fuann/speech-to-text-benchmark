@@ -1,0 +1,1 @@
+indeed irresolution meaning the keynote of hamlets soliloquy a clever player could to some extent indicate the whole thirty lines by a silage working of the job but at the same time it would be idle to deny that he would miss the finer shades of the dramatist meaning

@@ -1,0 +1,1 @@
+a fresh wholesome looking boy was tom gates with steady gray eyes and intelligent forehead but a sensitive rather weak mouth

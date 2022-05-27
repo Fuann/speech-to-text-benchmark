@@ -1,0 +1,1 @@
+in a few moments he heard the cherries dropping smartly into the pail and he began to swing his sigh with that long even stroke that few american boys ever learn

@@ -1,0 +1,1 @@
+he soon foresaw that still greater economy would be necessary for commercial success not alone for the larger territory opening but for the compact district of large cities

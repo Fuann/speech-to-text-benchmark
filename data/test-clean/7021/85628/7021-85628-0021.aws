@@ -1,0 +1,1 @@
+he still held onto it with both hands as he rushed into his mother's cottage

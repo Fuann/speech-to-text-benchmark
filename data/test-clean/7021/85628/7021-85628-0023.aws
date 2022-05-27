@@ -1,0 +1,1 @@
+but when his big brother heard that he had refused to give his cap for a king's golden crown he said that anders was a stupid
