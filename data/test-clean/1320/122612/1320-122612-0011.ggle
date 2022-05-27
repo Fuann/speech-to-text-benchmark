@@ -1,1 +1,0 @@
-if a rock or a rivulet or a bit of earth harder than common severed the links of the clue they followed the true eye of the scout recovered them at a distance and seldom rendered the delay of a single moment necessary

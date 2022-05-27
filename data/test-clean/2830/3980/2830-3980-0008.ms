@@ -1,1 +1,0 @@
-paul takes pride in his ministry not to his own phrase but to the praise of god

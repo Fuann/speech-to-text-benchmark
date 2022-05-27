@@ -1,1 +1,0 @@
-only there are two sorts of cloud in fire

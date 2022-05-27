@@ -1,1 +1,0 @@
-forgive me i hardly know what i am saying one thousand times forgive me madame was right quite right this brutal exile has completely turned my brain

@@ -1,1 +1,0 @@
-he quitted the fire and dropped back into his chair

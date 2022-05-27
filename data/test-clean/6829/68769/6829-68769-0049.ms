@@ -1,1 +1,0 @@
-he detested the grasping disposition that would endeavour to take advantage of his evident desire to help young gates

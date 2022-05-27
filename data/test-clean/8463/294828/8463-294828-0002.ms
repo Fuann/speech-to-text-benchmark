@@ -1,1 +1,0 @@
-even so i had just returned from an arduous journey exhausted and badly needing a rest

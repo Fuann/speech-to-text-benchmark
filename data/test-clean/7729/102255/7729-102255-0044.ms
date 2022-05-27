@@ -1,1 +1,0 @@
-here he was placed in the custody of captain martin of the kickapoo rangers who proved a kind jailer and materially assisted in protecting him from the dangerous intentions of the mob which at that time held leavenworth under the reign of terror

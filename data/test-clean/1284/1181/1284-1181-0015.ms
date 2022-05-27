@@ -1,1 +1,0 @@
-most people talk too much so it is a relief to find one who talks too little

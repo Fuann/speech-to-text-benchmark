@@ -1,1 +1,0 @@
-he dropped a handful into her lap

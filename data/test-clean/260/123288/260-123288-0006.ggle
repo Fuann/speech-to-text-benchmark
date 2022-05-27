@@ -1,1 +1,0 @@
-the atmosphere as evidently charged and surcharged with electricity

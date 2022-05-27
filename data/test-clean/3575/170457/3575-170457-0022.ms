@@ -1,1 +1,0 @@
-in the evenings i confess i do think but i never trouble anyone else with my thoughts

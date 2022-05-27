@@ -1,1 +1,0 @@
-i understand bartley i was wrong

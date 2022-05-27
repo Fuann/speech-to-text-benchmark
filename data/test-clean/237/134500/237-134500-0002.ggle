@@ -1,1 +1,0 @@
-a brisk wind had come up and was driving puffy white clouds across the sky

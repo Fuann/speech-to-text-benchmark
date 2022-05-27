@@ -1,1 +1,0 @@
-i took five great bracelets of gold from our treasure chest and gave them to him

@@ -1,1 +1,0 @@
-there was something of sweetness and fondness in her tones and manner which was new to rachel and comforting and she returned the greeting as kindly and felt more like her former self

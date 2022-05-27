@@ -1,1 +1,0 @@
-for one long moment he paused stupid agape with utter amazement then leaned dizzily against the tree

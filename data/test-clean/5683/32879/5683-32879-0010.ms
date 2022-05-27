@@ -1,1 +1,0 @@
-poor rachel her nature recoiled from deceit and she told at all events as much of the truth as she dared

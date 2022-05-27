@@ -1,1 +1,0 @@
-the colorist says first of all as my delicious paraquet was ruby so this nasty viper shall be black and then is the question can i round him off even though he is black and make him slimy and yet springy and close down clotted like a pool of black blood on the earth all the same

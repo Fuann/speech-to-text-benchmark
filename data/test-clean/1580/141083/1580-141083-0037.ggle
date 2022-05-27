@@ -1,1 +1,0 @@
-what could he do he caught up everything which would betray him and he rushed into your bedroom to conceal himself

@@ -1,1 +1,0 @@
-she had been born within its borders within its borders she had lived and grown and within its border she had met her love

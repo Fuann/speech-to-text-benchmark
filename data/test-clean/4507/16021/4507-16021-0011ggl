@@ -1,1 +1,0 @@
-why should one not explore everything and study everything

@@ -1,1 +1,0 @@
-the incident was not violent nor even dramatic no posse was summoned no further effort made and reeder fearing personal violence soon fled in disguise

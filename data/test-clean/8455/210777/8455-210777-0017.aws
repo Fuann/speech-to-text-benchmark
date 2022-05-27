@@ -1,1 +1,0 @@
-my wife on the spur of the moment managed to give the gentleman a very good dinner

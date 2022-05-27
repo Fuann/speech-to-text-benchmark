@@ -1,1 +1,0 @@
-above were three students one on each story

@@ -1,1 +1,0 @@
-the jews were suffered to exhale and the sun had dispersed the mists and was shedding a strong and clear light in the forest when the travellers resumed their journey

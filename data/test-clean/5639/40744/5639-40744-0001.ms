@@ -1,1 +1,0 @@
-secure as he thought and the careful administration of justice in that city and the character of its well disposed inhabitants the good hidalgo was far from thinking that any disaster could befall his family

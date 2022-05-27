@@ -1,1 +1,0 @@
-a gentle kick from the tall boy in the bench behind urged stephen to ask a difficult question

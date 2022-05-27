@@ -1,1 +1,0 @@
-under the simple test of effectiveness for advertising we should expect to find leisure and the conspicuous consumption of goods dividing the field of pecuniary emulation pretty evenly between them at the outset

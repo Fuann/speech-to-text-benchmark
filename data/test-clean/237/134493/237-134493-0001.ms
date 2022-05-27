@@ -1,1 +1,0 @@
-his wife now lies beside him and the white shaft that marks their graves gleams across the wheat fields

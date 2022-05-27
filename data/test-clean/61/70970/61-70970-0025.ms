@@ -1,1 +1,0 @@
-they were upon the verge of an open trap in the far corner of the hut and stutly had tripped over the edge of the reversed flap mouth of this pit

@@ -1,1 +1,0 @@
-i can afford to smile because i am absolutely powerless before you but i do not the less feel that in a matter of which the progress of the world is concerned i or rather we have been put down by brute force

@@ -1,1 +1,0 @@
-poor douglas before his death when it was insight committed to me the manuscript that reached him on the third of these days and that on the same spot with immense effect he began to read to our hushed little circle on the night of the fourth

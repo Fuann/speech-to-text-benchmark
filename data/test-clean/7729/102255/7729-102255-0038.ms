@@ -1,1 +1,0 @@
-atchison who had been haranguing the mob planted his two guns before the building and trained them upon it

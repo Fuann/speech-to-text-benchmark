@@ -1,1 +1,0 @@
-they were now illuminated by the morning radiance of a young child's disposition but later in the day of earthly existence might be prolific of the storm and whirlwind

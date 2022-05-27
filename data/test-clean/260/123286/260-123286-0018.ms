@@ -1,1 +1,0 @@
-i saw at the hamburg museum the skeleton of one of these creatures thirty feet in length

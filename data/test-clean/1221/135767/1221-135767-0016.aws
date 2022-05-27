@@ -1,1 +1,0 @@
-with many variations suggested by the nature of his building materials diversity of climate and a different mode of social life governor bellingham had planned his new habitation after the residences of gentlemen of ferris state in his native land

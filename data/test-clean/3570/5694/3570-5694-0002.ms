@@ -1,1 +1,0 @@
-such consumption as falls through the women is merely incidental to their work it is a means to their continued labour and not to consumption directed to their own comfort and fullness of life

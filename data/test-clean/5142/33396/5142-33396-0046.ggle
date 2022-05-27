@@ -1,1 +1,0 @@
-by the beard of odin i cried you have taken our joke like a man

@@ -1,1 +1,0 @@
-their helpless worm arose and sat upon the lilies leaf and the bright cloud sailed on defined his partner in the veil

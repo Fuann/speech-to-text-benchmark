@@ -1,1 +1,0 @@
-he looked up at naomi dotingly from his plate and looked down again slowly with a frown

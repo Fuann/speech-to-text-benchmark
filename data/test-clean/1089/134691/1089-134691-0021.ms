@@ -1,1 +1,0 @@
-their diving stone poised on its rude supports and rocking under their plunges and the rough hewn stones of the sloping breakwater over which they scrambled in their horse play gleamed with cold wet lustre

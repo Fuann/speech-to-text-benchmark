@@ -1,1 +1,0 @@
-there is no danger of the modern common teachers on the timeus falling into the absurdities of the neoplatonists

@@ -1,1 +1,0 @@
-thus did the humane and right minded father comfort his unhappy daughter and her mother embracing her again did all she could to soothe the feelings

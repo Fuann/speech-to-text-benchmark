@@ -1,1 +1,0 @@
-suddenly for the purpose of restoring peace and order spraying accompanied by his whole court made his appearance

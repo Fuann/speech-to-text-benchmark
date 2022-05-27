@@ -1,1 +1,0 @@
-a little bit of plaster tumbled down the chimney and startled me confoundingly

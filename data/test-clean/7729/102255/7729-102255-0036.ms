@@ -1,1 +1,0 @@
-he planned a company before the hotel and demanded a surrender of the arms belonging to the free state military companies

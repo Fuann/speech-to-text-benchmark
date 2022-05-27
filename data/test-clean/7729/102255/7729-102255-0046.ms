@@ -1,1 +1,0 @@
-in the early morning of the next day may twenty nine a company of dragoons with one empty saddle came down from the fort and while the pro slavery men still slept the prisoner and his escort were on their way across the prairies to lecompton in the charge of officers of the united states army

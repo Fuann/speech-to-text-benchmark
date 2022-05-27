@@ -1,1 +1,0 @@
-he had a lot of line out and the place was none too free for a long cast but he was impatient to drop his flies again on the spot where the big fish was feeding

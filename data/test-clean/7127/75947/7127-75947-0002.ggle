@@ -1,1 +1,0 @@
-do you think so she replied with indifference

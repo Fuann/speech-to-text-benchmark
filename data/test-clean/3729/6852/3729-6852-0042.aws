@@ -1,1 +1,0 @@
-i am a very unpleasant pupil always asking questions curious troublesome insatiable and even supposing that i could meet with the teacher i require i am afraid i am not rich enough to pay him

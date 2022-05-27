@@ -1,1 +1,0 @@
-i see they lay helpless and naked weeping and none to answer none to cherish thee with mother's smiles

@@ -1,1 +1,0 @@
-if spoken to she would not speak again

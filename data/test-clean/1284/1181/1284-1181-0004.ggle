@@ -1,1 +1,0 @@
-gold is the most common metal in the land of oz and is used for many purposes because it is soft and pliable

@@ -1,1 +1,0 @@
-why it's in missouri somewhere on the frontier i think we'll get a map

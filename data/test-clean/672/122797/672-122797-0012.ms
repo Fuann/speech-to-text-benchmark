@@ -1,1 +1,0 @@
-i would fain know if i am destined for so glorious a career cried the tree rejoicing

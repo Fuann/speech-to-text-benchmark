@@ -1,1 +1,0 @@
-in all early gothic art indeed you will find failure of this kind especially distortion and rigidity which are in many respects painfully to be compared with the splendid repose of classic art

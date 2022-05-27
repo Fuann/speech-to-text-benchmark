@@ -1,1 +1,0 @@
-here is a ring for sift the friendly and here is a bracelet and a sword would not be ashamed to hang at your side

@@ -1,1 +1,0 @@
-if he to keep one oath must lose one joy by his life's star foretold

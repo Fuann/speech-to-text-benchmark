@@ -1,1 +1,0 @@
-it was the indian whose dark silhouette appeared suddenly upon his blind

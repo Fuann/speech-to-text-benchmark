@@ -1,1 +1,0 @@
-when you argue about the nature of god apart from the question of justification you may be as profound as you like

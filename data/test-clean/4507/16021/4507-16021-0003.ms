@@ -1,1 +1,0 @@
-she has a son's theft and a daughter's hunger

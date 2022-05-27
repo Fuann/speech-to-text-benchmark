@@ -1,1 +1,0 @@
-they snuffed about the fur tree and rustled among the branches

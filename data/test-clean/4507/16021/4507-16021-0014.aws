@@ -1,1 +1,0 @@
-now when has horror ever excluded study

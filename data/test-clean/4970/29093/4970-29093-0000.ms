@@ -1,1 +1,0 @@
-you'll never dig it out of the astor library

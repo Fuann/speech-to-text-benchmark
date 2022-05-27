@@ -1,1 +1,0 @@
-the revelation of his love lighted and brightened slowly till it flamed like a sunrise over him and left him in burning wonder

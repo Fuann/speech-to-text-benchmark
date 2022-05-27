@@ -1,1 +1,0 @@
-i left you on a continent and here i have the honour of finding you on an island

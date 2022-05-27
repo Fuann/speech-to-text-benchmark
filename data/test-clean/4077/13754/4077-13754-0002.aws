@@ -1,1 +1,0 @@
-it was through floyd's advice that buchanan ordered the military expedition to utah ostensibly to install certain federal officials and to repress an alleged infantile rebellion which in fact had never come into existence but in reality to further the interests of the secessionists

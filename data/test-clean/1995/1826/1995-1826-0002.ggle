@@ -1,1 +1,0 @@
-john taylor who had supported her through college was interested in cotton

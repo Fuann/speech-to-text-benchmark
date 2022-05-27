@@ -1,1 +1,0 @@
-on the palm were three little pyramids of black doughy clay

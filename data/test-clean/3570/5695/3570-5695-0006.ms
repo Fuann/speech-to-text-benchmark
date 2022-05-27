@@ -1,1 +1,0 @@
-very much of squalor and discomfort will be endured before the last trinket or the last pretence of pecuniary decencies put away

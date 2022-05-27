@@ -1,1 +1,0 @@
-there is no opening except the one pane said our learned guide

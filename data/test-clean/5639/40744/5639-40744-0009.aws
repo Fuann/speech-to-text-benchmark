@@ -1,1 +1,0 @@
-mother dear father do you hear me

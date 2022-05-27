@@ -1,1 +1,0 @@
-he darted through the trees and paused a tall man strongly but slimly made

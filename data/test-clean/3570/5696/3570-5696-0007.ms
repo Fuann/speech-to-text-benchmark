@@ -1,1 +1,0 @@
-the use of the word waste as a technical term therefore implies no deprecation of the motives or of the ends sought by the consumer under this cannon of conspicuous waste

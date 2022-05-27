@@ -1,1 +1,0 @@
-they say illumination by candlelight is the prettiest in the world

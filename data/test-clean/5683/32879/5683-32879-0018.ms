@@ -1,1 +1,0 @@
-it is an antipathy an antipathy i cannot get over dear dorcus you may think it a madness but don't blame me

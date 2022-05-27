@@ -1,1 +1,0 @@
-the bogus legislature numbered thirty six members

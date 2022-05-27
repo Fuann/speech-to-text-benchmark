@@ -1,1 +1,0 @@
-then dear said missus whitney you must be kinder to her than ever think what it would be for one of you to be away from home even among friends

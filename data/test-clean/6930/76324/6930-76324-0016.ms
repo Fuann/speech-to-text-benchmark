@@ -1,1 +1,0 @@
-volure proved too much for him and he came sporting after it as friskily as a young kitten much to cynthia's delight when she caught sight of him

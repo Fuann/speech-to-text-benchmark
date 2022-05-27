@@ -1,1 +1,0 @@
-and fear as thou because i vanish and am seeing no more

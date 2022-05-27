@@ -1,1 +1,0 @@
-the somber old trees like gigantic hearse plumes black and awful

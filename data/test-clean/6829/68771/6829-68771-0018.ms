@@ -1,1 +1,0 @@
-for a moment beth stood staring while the new maid regarded her with composure and slight smile upon her beautiful face

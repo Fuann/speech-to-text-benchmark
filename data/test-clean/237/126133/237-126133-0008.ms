@@ -1,1 +1,0 @@
-asked bronzie with her little face close to polly's own

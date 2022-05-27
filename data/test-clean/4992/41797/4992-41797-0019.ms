@@ -1,1 +1,0 @@
-all of his mournful black eyes met nancy's sparkling brown ones

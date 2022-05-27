@@ -1,1 +1,0 @@
-the piled up vapors condensed into water and the air put into violent action to supply the vacuum left by the condensation of the mist rouses itself into a whirlwind

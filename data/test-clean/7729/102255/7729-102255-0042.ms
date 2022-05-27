@@ -1,1 +1,0 @@
-relocated footnote governor robinson being on his way east the steamboat on which he was traveling stopped at lexington mo

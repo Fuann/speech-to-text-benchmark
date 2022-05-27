@@ -1,1 +1,0 @@
-kathleen waved the torch to and fro as she recited some beautiful lines written for some such purpose as that which called them together to night

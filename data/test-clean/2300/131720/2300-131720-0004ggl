@@ -1,1 +1,0 @@
-owing to his insistence on low pressure direct current for use in densely populated districts as the only safe and truly universal profitable way of delivering electrical energy to the consumers edison has been frequently spoken of as an opponent of the alternating current

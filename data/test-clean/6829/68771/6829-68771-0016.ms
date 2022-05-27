@@ -1,1 +1,0 @@
-she was very fond of the young ladies whom she had known when aunt jane was their mistress here and beth was her especial favorite

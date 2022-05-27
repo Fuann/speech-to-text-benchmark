@@ -1,1 +1,0 @@
-meanwhile rudolfo had leukaemia safe in his custody and in his own apartment

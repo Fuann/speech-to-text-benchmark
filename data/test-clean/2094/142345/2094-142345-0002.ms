@@ -1,1 +1,0 @@
-for it is a solid heavy handsome door and must once have been in the habit of shedding with a sonorous bang behind the liveried lackey who had just seen his master and mistress off the grounds in a carriage and pair

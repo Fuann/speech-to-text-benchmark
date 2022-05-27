@@ -1,1 +1,0 @@
-all the time he was talking to me his angry little eyes were following lake

@@ -1,1 +1,0 @@
-the face of the mahogany shone with delight and why not when it was doing everything almost everything within the scope of a piano and yet the family had enjoyed weeks of good nourishing meals on what had been saved by its exertions

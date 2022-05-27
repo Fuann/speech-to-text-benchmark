@@ -1,1 +1,0 @@
-well what can't be done by main courage in war must be done by circumvention

@@ -23,4 +23,3 @@ local/filter_scp.pl -f 1 $text3p $data/hyp > $data/hyp.3p
 compute-wer ark:$text1p ark:$data/hyp.1p | grep WER > $data/wer.1p
 compute-wer ark:$text2p ark:$data/hyp.2p | grep WER > $data/wer.2p
 compute-wer ark:$text3p ark:$data/hyp.3p | grep WER > $data/wer.3p
-

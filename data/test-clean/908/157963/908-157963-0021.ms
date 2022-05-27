@@ -1,1 +1,0 @@
-lives not alone nor of itself fear not and i will call the weak worm from its lowly bed and thou shalt hear its voice

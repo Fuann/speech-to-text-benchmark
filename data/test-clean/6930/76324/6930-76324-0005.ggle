@@ -1,1 +1,0 @@
-the twin brother did something she didn't like and she turned his picture to the wall

@@ -1,1 +1,0 @@
-ojo examined this curious contrivance with wonder

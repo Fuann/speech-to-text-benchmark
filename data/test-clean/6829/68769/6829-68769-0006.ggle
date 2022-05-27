@@ -1,1 +1,0 @@
-if the prosecution were withdrawn and the case settled with the victim of the forged check then the young man would be allowed as freedom

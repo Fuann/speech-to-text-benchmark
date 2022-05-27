@@ -1,1 +1,0 @@
-two hours afterwards a terrible shock awoke me

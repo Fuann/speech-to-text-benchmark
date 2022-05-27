@@ -1,1 +1,0 @@
-soon thousands of converts had rented or purchased homes in missouri independence jackson county being their center but from the first they were unpopular among the missourians

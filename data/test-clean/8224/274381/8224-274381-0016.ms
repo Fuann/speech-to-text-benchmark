@@ -1,1 +1,0 @@
-valor indeed was very generally diffused over the one party as well as the other during this period discipline also was attained by the forces of the parliament but the perfection of the military art in concerting the general plans of action and the operations of the field seems still on both sides to have been in a great measure wanting

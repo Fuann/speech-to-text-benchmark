@@ -1,1 +1,0 @@
-he could examine the papers in his own office

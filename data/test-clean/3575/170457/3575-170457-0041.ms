@@ -1,1 +1,0 @@
-she was gone out into the village on some errand when as she was descending the steep st her foot slipped on the ice and she fell he was dark and no one saw her mischance till after a time her groans attracted the attention of a passer by

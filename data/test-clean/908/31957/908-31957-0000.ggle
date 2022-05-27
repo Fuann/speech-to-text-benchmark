@@ -1,1 +1,0 @@
-all is said without a word

@@ -1,1 +1,0 @@
-some images like some sensations feel very familiar while others feel strange

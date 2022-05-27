@@ -1,1 +1,0 @@
-why should i rust and be stupid and sit in an action because i am a girl

@@ -1,1 +1,0 @@
-they think you are proud because you've been away to school or something

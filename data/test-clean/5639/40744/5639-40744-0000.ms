@@ -1,1 +1,0 @@
-one thousand one hundred o'clock had struck it was a fine clear night there were the only persons on the road and they sauntered leisurely along to avoid paying the price of fatigue for the recreation provided for the toledoans in the valley or on the banks of their river

@@ -1,1 +1,0 @@
-bartley leaned over her shoulder without touching her and whispered in her ear you are giving me a chance yes

@@ -1,1 +1,0 @@
-so there were quite willing to obey the orders of their girl queen and in a short time the blast of trumpets and roll of drums and clashing of symbols told trot and captain bill that the blue bands had assembled before the palace

@@ -1,1 +1,0 @@
-this was done for the event took place at a time when the consent of the parties was sufficient for the celebration of a marriage without any of the preliminary formalities which are now so properly required

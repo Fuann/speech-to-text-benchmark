@@ -1,1 +1,0 @@
-there is hardly one day out of one hundred which is wholly joyous and sunny

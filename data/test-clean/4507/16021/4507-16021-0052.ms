@@ -1,1 +1,0 @@
-the real human division is this the luminous and the shady

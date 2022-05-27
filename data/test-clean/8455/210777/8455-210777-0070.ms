@@ -1,1 +1,0 @@
-and this plan was adopted too in order to extract from me a promise that i would depart in peace

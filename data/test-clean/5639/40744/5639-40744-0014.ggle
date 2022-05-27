@@ -1,1 +1,0 @@
-among other things on which she cast her eyes was a small crucifix of solid silver standing on a cabinet near the window

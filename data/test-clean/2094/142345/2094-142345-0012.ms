@@ -1,1 +1,0 @@
-the family likeness between her and her niece dana morris with a contrast between her keenness and diness seraphic gentleness of expression might have served a painter as an excellent suggestion for a martha and mary

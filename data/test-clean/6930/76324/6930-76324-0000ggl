@@ -1,1 +1,0 @@
-goliath makes another discovery

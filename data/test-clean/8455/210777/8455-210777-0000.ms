@@ -1,1 +1,0 @@
-i remained there alone for many hours but i must acknowledge that before i left the chambers i had gradually brought myself to look at the matter in another light

@@ -1,1 +1,0 @@
-and you belong to that small class who are happy

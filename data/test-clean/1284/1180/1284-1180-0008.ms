@@ -1,1 +1,0 @@
-all the morning they trudged up the mountain path and at noon unk and ojo sat on a fallen tree trunk and ate the last of the bread which the old munchkin had placed in his pocket

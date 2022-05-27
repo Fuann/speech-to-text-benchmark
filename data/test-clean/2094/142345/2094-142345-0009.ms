@@ -1,1 +1,0 @@
-for the great barn doors are thrown wide open and men are busy there mending the harness under the superintendents of mr goby the widow otherwise sadler who entertains them with the latest tradeston gossip

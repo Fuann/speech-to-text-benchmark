@@ -1,1 +1,0 @@
-lamb wouldn't care a great deal about many of them i fancy

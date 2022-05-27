@@ -1,1 +1,0 @@
-to be or not to be that is the question whether tis nobler in the mind to suffer the slings and arrows what no hamlet speaking

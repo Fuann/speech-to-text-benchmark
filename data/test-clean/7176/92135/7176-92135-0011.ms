@@ -1,1 +1,0 @@
-now the object of this soliloquy is plain

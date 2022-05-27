@@ -1,1 +1,0 @@
-here is an equally typical greek school landscape by wilson lost wholly in golden mist the trees so slightly drawn that you don't know if they are trees or towers and no care for color whatsoever perfectly deceptive and marvelous effect of sunshine through the mist apollo and the python

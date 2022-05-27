@@ -1,1 +1,0 @@
-his legs the best shaped at court were displayed to great advantage in flesh colored silken hose of silk so fine and so transparent that it seemed almost like flesh itself

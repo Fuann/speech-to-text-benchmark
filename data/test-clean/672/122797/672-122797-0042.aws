@@ -1,1 +1,0 @@
-but they dragged him out of the room and up the stairs into the loft and here in a dark corner where no daylight could enter they left him

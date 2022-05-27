@@ -1,1 +1,0 @@
-facts form one of these and ideas the other

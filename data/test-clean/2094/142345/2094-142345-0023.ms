@@ -1,1 +1,0 @@
-you are a rare in for sitting down to your work a little while after it's time to put by

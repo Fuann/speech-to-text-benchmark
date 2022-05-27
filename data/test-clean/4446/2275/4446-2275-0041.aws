@@ -1,1 +1,0 @@
-you see loving someone as i love you makes the whole world different

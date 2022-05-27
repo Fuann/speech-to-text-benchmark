@@ -1,1 +1,0 @@
-but even the unsuccessful dramatist has his moments

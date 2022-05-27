@@ -1,1 +1,0 @@
-the men entered and took the papers sheet by sheet from the central table

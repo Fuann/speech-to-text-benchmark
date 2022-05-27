@@ -1,1 +1,0 @@
-i am not allowed to perform magic except for my own amusement he told his visitors as he lighted a pipe with a crooked stem and began to smoke

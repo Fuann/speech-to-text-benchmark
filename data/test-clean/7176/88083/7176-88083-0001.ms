@@ -1,1 +1,0 @@
-the merganser had a crested head of iridescent green black a broad collar of lustrous white black back black and white wings white belly sides finely pencilled in black and white and a breast of rich chestnut red streaked with black

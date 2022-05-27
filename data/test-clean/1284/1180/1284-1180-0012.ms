@@ -1,1 +1,0 @@
-we have come from a far lonelier place than this a lonelier place

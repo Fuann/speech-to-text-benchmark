@@ -1,1 +1,0 @@
-he refused at first to listen to the careful advice it was repugnant to his liberal nature

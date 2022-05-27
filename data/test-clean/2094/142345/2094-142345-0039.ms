@@ -1,1 +1,0 @@
-i've strong assurance that no evil will happen to you and my uncle and the children from anything i have done

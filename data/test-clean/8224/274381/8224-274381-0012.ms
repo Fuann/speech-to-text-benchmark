@@ -1,1 +1,0 @@
-montrose weak in cavalry here lined his troops of horse with infantry and after putting the enemy's horse to rout fell with united force upon their foot who were entirely cut in pieces though with the loss of the gallant lord gordon on the part of the royalists

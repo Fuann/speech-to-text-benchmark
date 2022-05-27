@@ -1,1 +1,0 @@
-the king stood up and called for that psalm which begins with these words

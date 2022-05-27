@@ -1,1 +1,0 @@
-you ought to know john if i teach i'll scarcely see much of people in my own class

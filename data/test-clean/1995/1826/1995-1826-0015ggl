@@ -1,1 +1,0 @@
-she had almost forgotten that it was here within touch and sight

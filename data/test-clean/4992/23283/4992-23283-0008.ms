@@ -1,1 +1,0 @@
-he seemed to wait for her reply but as she made none he proceeded

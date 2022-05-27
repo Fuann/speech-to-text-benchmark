@@ -1,1 +1,0 @@
-she rolls with a fleeting glance gathered the shawl around her then gliding forward wavering tremulous slipped across the road and into the swamp

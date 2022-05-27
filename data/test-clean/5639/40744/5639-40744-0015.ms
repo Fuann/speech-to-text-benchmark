@@ -1,1 +1,0 @@
-this person was rodolfo although he had gone to look for his friends had changed his mind in that respect not thinking it advisable to acquaint them with what had passed between him and the girl

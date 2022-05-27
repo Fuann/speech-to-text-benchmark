@@ -1,1 +1,0 @@
-as to any other kind of discipline whether a dress to her mind or heart little pearl might or might not be within its reach in accordance with the caprice that ruled the moment

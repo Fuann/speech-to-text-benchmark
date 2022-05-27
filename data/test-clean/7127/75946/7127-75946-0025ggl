@@ -1,1 +1,0 @@
-the ballet began the effect was more than beautiful

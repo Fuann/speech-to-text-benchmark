@@ -1,1 +1,0 @@
-i wouldn't mind a cup of coffee myself said kimball i have had considerable exercise this morning and i'm all ready for breakfast

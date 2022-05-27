@@ -1,1 +1,0 @@
-thy ways greatly try me ruth and all thy relations

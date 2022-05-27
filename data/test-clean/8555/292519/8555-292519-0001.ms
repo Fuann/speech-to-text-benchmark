@@ -1,1 +1,0 @@
-guided by you how we might stroll towards death our only music one another's breath through gardens intimate with hollyhocks where silent poppies burned between the rocks by pools where birches bend to confidantes above green waters scammed with lily plants

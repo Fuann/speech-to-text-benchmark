@@ -1,1 +1,0 @@
-he has no traditions to bind him or guide him and his impulse is to break away from the occupation his father has followed and make a new way for himself

@@ -1,1 +1,0 @@
-in the modern well constructed play he simply rings up an imaginary confederate and tells him what he is going to do could anything be more natural

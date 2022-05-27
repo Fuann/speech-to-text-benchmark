@@ -1,1 +1,0 @@
-but such was his keenness that even while the wide flukes of his engorged victim were still sticking out at the corners of his beak his fierce red eyes were once more peering downward into the torrent in search of fresh prey

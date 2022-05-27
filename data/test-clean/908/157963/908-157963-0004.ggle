@@ -1,1 +1,0 @@
-fell is like a watery bow and like a parting cloud like a reflection in a glass like shadows in the water like dreams of infants like a smile upon an infant's face

@@ -1,1 +1,0 @@
-the arch lamp installed outside a customer's premises or in a circuit for public st lighting burned so many hours nightly so many nights in the month and was paid for at that rate subject to rebate for hours when the lamp might be out through accident

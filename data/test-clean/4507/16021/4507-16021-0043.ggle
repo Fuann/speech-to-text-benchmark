@@ -1,1 +1,0 @@
-the earth is not devoid of resemblance to a jail

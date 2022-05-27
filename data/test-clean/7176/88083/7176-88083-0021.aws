@@ -1,1 +1,0 @@
-but as before the leaping waves of the rapids were too much for his pursuer and he was able to flap his way onward in a cloud of foam while doom hung low above his head yet hesitated to strike

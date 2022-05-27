@@ -1,1 +1,0 @@
-no cathedral not even burgos itself could vie with the church at montmartre

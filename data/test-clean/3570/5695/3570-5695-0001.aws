@@ -1,1 +1,0 @@
-the dependent who was first delegated for these duties was the wife or the chief wife and as would be expected in the later development of the institution when the number of persons by whom these duties are customarily performed gradually narrows the wife remains the last

@@ -1,1 +1,0 @@
-the greatness of the ransom christ the son of god indicates this

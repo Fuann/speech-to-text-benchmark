@@ -1,1 +1,0 @@
-at one end stood a great fireplace in which a blue log was blazing with a blue flame and over the fire hung four kettles in a row all bubbling and steaming at a great rate

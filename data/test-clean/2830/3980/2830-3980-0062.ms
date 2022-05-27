@@ -1,1 +1,0 @@
-not for a crown or a kingdom or our goodness but for our sins

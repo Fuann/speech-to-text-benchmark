@@ -1,1 +1,0 @@
-his specifications for an open sea submarine and a self containing diving suit were decades before their time yet modern technology bears them out triumphantly

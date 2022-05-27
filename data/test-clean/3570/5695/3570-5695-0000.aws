@@ -1,1 +1,0 @@
-in a general way though not wholly nor consistently these two groups coincide

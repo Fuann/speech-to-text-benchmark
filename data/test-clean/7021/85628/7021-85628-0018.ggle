@@ -1,1 +1,0 @@
-and it is made of mother's best yarn and she knitted it herself and everybody wants to get it away from me

@@ -1,1 +1,0 @@
-she saw that the bed was gilded and so rich that it seemed that of a prince rather than of a private gentleman

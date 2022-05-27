@@ -1,1 +1,0 @@
-but as we descend the social scale the point is presently reached where the duties of vicarious leisure and consumption devolve upon the wife alone

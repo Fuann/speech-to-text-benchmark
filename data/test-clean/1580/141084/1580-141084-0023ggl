@@ -1,1 +1,0 @@
-in a few hours the examination would commence and he was still in the dilemma between making the facts public and allowing the culprit to compete for the valuable scholarship

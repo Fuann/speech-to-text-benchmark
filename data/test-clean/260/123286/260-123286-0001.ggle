@@ -1,1 +1,0 @@
-the horizon seems extremely distant

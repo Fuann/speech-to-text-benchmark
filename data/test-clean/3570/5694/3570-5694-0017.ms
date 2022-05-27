@@ -1,1 +1,0 @@
-the wearing of uniforms or liveries implies a considerable degree of dependence and may even be said to be a mark of servitude real or ostensible

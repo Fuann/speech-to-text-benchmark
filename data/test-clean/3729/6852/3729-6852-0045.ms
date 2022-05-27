@@ -1,1 +1,0 @@
-he had a good appetite catella good story without laughing was celebrated for his witty repartees and his sociable manners but he spent his life at home seldom going out and seeing hardly any one because he always had a pipe in his mouth and was surrounded by at least twenty cats with which he would amuse himself all day

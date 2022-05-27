@@ -1,1 +1,0 @@
-on huge silver platters were pyramids of tarts and cakes and red wine sparkled in glittering decanters

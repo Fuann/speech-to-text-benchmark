@@ -1,1 +1,0 @@
-there was a bright moonlight broken by the shadows of overhanging boughs and withered leaves and the mottled lights and shadows glided oddly across his pale features

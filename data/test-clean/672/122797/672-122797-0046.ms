@@ -1,1 +1,0 @@
-tis now winter out of doors thought the tree

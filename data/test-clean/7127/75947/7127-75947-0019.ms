@@ -1,1 +1,0 @@
-did not the dancing amuse you no

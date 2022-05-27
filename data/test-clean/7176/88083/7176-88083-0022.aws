@@ -1,1 +1,0 @@
-the hawk embittered by the loss of his first quarry had become as dogged in pursuit as a weasel not to be shaken off or evaded or deceived

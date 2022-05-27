@@ -1,1 +1,0 @@
-has thee consulted thy mother about a career i suppose it is a career thee wants

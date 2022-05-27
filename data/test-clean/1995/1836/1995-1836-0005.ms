@@ -1,1 +1,0 @@
-missus gray had met southerners before but not intimately and she always had in mind vividly their cruelty to poor a subject she made a point of introducing forthwith

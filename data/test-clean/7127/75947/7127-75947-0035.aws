@@ -1,1 +1,0 @@
-good gracious has the king any right to interfere in matters of that kind

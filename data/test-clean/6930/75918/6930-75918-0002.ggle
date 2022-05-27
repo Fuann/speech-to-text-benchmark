@@ -1,1 +1,0 @@
-congratulations were poured in upon the princess everywhere during her journey

@@ -1,1 +1,0 @@
-wherever the means of grace are found there is the holy church even though antichrist reigns there

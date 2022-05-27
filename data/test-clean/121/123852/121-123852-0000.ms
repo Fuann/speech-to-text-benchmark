@@ -1,1 +1,0 @@
-those pretty wrongs that liberty commits when i am some time absent from thy heart thy beauty and thy years fall well befits for still temptation follows where thou art

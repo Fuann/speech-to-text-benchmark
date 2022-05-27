@@ -1,1 +1,0 @@
-you can begin by carrying a rod and putting down the figures

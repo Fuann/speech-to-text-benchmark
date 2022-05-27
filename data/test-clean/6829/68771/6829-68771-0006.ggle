@@ -1,1 +1,0 @@
-and this was why kenneth and beth discovered him conversing with the young woman in the buggy

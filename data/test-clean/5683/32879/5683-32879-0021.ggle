@@ -1,1 +1,0 @@
-dorcas in her strange way was moved

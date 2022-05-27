@@ -1,1 +1,0 @@
-kenneth and beth refrain from telling the other girls or uncle john's of old will rogers's visit but they got mr watson in the library and questioned him closely about the penalty for forging a check

@@ -1,1 +1,0 @@
-through the black night rain he sang to her window bars

@@ -1,1 +1,0 @@
-his feet were red his long narrow beak with its sawtoothed edges and sharp hooked tip was bright red

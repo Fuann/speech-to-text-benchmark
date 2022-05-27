@@ -1,1 +1,0 @@
-there is no class and no country that has yielded so abjectly before the pressure of physical want as to deny themselves all gratification of this higher or spiritual need

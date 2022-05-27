@@ -1,1 +1,0 @@
-dreading the superior power of argyle who having joined his vassals to a force levied by the public was approaching with a considerable army montrose hastened northward in order to rouse again the marquis of huntley and the gordons who having before hastily taken arms had been instantly suppressed by the covenanters

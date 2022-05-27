@@ -1,1 +1,0 @@
-substantially this was jacob's unvarnished description of his master and mistress

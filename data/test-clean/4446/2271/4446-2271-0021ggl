@@ -1,1 +1,0 @@
-she must care about the theater a great deal more than she used to

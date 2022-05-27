@@ -1,1 +1,0 @@
-he darted like an arrow through all the halls down all the stairs and across the yard

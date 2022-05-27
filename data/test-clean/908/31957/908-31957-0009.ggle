@@ -1,1 +1,0 @@
-and though i have grown serene and strong since then i think that god has willed a still renewable fear

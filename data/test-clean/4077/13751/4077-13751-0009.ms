@@ -1,1 +1,0 @@
-the first well established seat of the church was in the pretty little town of kirtland oh almost within sight of lake erie and here soon rose the first temple of modern times

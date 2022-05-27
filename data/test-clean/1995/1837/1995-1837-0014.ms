@@ -1,1 +1,0 @@
-he stood a moment bewildered then turned and rushed upon the island a great sheet of dazzling sunlight swept the place and beneath lay a mighty mass of olive green thick tall wet and willowy

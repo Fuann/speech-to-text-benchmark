@@ -1,1 +1,0 @@
-the modest fellow would have liked fame thrust upon him for some worthy achievement it might be for a book or for the skillful management of some great newspaper or for some daring expedition like that of lieutenant strain or doctor kane

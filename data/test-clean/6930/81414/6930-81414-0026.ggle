@@ -1,1 +1,0 @@
-my overwrought nerves yielded at last

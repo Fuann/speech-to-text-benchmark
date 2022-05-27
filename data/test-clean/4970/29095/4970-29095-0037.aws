@@ -1,1 +1,0 @@
-but that wise and placid woman understood the sweet rebel a great deal better than ruth understood herself

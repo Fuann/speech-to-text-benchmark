@@ -1,1 +1,0 @@
-then he approached it and standing on tiptoe with his neck craned he looked into the room

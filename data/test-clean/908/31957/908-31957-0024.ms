@@ -1,1 +1,0 @@
-i love thee with the passion put to use in my old creeds and with my childhood's faith

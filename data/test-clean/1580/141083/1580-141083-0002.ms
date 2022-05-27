@@ -1,1 +1,0 @@
-my friend's temper had not improved since he had been deprived of the congenial surroundings of baker street

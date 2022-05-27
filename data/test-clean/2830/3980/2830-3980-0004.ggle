@@ -1,1 +1,0 @@
-indeed he persecuted the church of christ for a long time

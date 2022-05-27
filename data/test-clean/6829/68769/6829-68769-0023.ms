@@ -1,1 +1,0 @@
-i didn't stop to think whether it was foolish or not i did it and i'm glad i did it

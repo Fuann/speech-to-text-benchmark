@@ -1,1 +1,0 @@
-not only this but on the table i found a small ball of black dough or clay with specks of something which looks like sawdust in it

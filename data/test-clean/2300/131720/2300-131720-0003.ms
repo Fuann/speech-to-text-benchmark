@@ -1,1 +1,0 @@
-the dynamo electric machine though small was robust for under all the varying speeds of water power and the vicissitudes of the plant to which it belonged it continued in active use until eighteen nine thousand nine hundred and seventeen years

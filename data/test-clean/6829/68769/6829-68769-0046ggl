@@ -1,1 +1,0 @@
-you're foolish why should you do all this

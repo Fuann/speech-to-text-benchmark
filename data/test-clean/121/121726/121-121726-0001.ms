@@ -1,1 +1,0 @@
-hirang the tiresome product of a tireless tongue

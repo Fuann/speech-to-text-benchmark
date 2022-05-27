@@ -1,1 +1,0 @@
-margot had first made the girls form from the patchwork quilt and then she had dressed it with a patchwork skirt and an apron with pockets in it using the same gay material throughout

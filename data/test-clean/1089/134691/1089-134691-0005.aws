@@ -1,1 +1,0 @@
-whose feet are as the feet of hearts and underneath the everlasting arms

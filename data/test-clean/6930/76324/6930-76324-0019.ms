@@ -1,1 +1,0 @@
-now let's dust the furniture and pictures

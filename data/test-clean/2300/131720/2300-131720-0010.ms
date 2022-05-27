@@ -1,1 +1,0 @@
-it could not be used for electroplating or deposition nor could it charge storage batteries all of which are easily within the ability of the direct current

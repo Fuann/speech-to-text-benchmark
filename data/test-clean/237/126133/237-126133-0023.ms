@@ -1,1 +1,0 @@
-he cried and high dudgeon just as if he owned the whole of the peppers and could dispose of them all to suit his fancy

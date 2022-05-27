@@ -1,1 +1,0 @@
-the story of its evil influence came back to me and in my bewildered condition i wondered whether there was not some truth in what had been said

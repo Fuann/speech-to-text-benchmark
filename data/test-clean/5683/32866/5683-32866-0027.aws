@@ -1,1 +1,0 @@
-a cold bright moon was shining with clear sharp lights and shadows

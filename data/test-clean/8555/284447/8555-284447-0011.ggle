@@ -1,1 +1,0 @@
-suppose it's a friend

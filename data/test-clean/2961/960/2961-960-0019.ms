@@ -1,1 +1,0 @@
-he could write in one style but not in another in the greek language had not as yet been fashioned by any poet or philosopher to describe physical phenomena

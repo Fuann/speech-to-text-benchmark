@@ -1,1 +1,0 @@
-oh very well said gringo turning away with a shade of contempt you'll find if you are going into literature and newspaper work that you can't afford a conscience like that

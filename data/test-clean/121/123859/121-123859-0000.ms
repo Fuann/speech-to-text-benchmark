@@ -1,1 +1,0 @@
-you are my all the world and i must strive to know my shames and praises from your tongue none else to me nor i to none alive that my stealed sense or changes right or wrong

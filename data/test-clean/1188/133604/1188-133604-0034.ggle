@@ -1,1 +1,0 @@
-exquisite order and universal with eternal life and light this is the faith and effort of the schools of crystal and you may describe and complete their work quite literally by taking any verses of chaucer in his tender mood and observing how he insists on the clearness and brightness first and then on the order

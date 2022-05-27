@@ -1,1 +1,0 @@
-at that epoch of pristine simplicity however matters of even slight or public interest and of far less intrinsic weight than the welfare of hester and her child were strangely mixed up with the deliberations of legislators and acts of state

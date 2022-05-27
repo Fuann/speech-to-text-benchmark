@@ -1,1 +1,0 @@
-with a further advance in culture this taboo may changed into simple custom of a more or less rigorous character but whatever be the theoretical basis of the distinction which is maintained whether it be a taboo or a larger conventionality the features of the conventional scheme of consumption do not change easily

@@ -1,1 +1,0 @@
-and so the story of mormonism runs on its finale has not yet been written the current press presents continuously new stages of its progress new developments of its plan

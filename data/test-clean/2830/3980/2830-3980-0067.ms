@@ -1,1 +1,0 @@
-this sentence also defines our sins as great so great in fact that the whole world could not make amends for a single sin

@@ -1,1 +1,0 @@
-one night when he and winifred were sitting together on the bridge he told her that things had happened while he was studying abroad that he was sorry for one thing in particular and he asked her whether she thought she ought to know about them

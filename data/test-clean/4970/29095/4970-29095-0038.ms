@@ -1,1 +1,0 @@
-ruth was glad to hear that phillip had made a push into the world and she was sure that his talent and courage would make a way for him

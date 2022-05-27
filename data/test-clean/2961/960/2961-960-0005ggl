@@ -1,1 +1,0 @@
-in the present day we are well aware that an ancient philosopher is to be interpreted from himself and by the contemporary history of thought

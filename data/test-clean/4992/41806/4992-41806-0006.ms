@@ -1,1 +1,0 @@
-ralph thurston had found a line of latin for them in his beloved horrens tibby splendid focus for you the hearth fire shines

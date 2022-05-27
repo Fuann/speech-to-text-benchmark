@@ -1,1 +1,0 @@
-i will briefly describe them to you and you shall read the account of them at your leisure in the sacred registers

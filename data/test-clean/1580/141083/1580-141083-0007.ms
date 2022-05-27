@@ -1,1 +1,0 @@
-the moment i looked at my table i was aware that someone had rummaged among my papers

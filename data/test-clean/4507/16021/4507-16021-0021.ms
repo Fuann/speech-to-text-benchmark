@@ -1,1 +1,0 @@
-the painter who says my grinder the notary who says my skip the gutter the hairdresser who says my mealy back the cobbler who says my cub talks slang

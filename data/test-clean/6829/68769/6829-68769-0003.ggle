@@ -1,1 +1,0 @@
-it was a deliberate theft from his employers to protect a girl he loved

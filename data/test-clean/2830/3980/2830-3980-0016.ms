@@ -1,1 +1,0 @@
-it spoils one's best work

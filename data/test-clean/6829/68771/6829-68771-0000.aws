@@ -1,1 +1,0 @@
-so to the surprise of the democratic committee and all his friends mr hopkins announced that he would oppose forbes aggressive campaign with an equal aggressiveness and spend as many dollars in doing so as might be necessary

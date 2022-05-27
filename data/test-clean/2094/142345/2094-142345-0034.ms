@@ -1,1 +1,0 @@
-and there's linen in the house as i could well spare you for i got lots of sheeting and table clothing and toweling as isn't made up

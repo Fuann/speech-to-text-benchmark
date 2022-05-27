@@ -1,1 +1,0 @@
-they remained divine regardless of men's opinion

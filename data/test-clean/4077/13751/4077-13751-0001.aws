@@ -1,1 +1,0 @@
-its origin was small a germ an insignificant seed hardly to be thought of as likely to arouse opposition

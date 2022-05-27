@@ -1,1 +1,0 @@
-and then they became vexed and would have snatched your purse from us

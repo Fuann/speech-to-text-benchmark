@@ -1,1 +1,0 @@
-he splashed and stamped along farther and farther onward until he neared the rampart of the clearing and put foot upon the tree bridge

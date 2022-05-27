@@ -1,1 +1,0 @@
-thus saying and pressing the crucifix to her breast she fell fainting into the arms of dona estefania who as a gentlewoman to whose sex pity is a natural as cruelty as to man instantly pressed her lips to those of the fainting girl shedding over her so many tears that there needed no other sprinkling of water to recover leocadia from her soon

@@ -1,1 +1,0 @@
-the hair was of brown yarn and hung down on her neck in several neat braids

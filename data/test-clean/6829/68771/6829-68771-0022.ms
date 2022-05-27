@@ -1,1 +1,0 @@
-i attend to the household mending you know and care for the linen

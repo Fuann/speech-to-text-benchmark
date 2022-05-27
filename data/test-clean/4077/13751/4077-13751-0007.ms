@@ -1,1 +1,0 @@
-the book of mormon had taught the people the true origin and destiny of the american indians and toward this dark skinned remnant of a once mighty people the missionaries of mormonism early turned their eyes and with their eyes went their hearts and their hopes

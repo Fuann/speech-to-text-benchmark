@@ -1,1 +1,0 @@
-it was further decorated with strange and seemingly cabalistic figures and diagrams suitable to the quaint taste of the age which had been drawn in the stucco when newly laid on and had now grown hard and durable for the admiration of after times

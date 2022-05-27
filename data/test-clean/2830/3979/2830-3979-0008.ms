@@ -1,1 +1,0 @@
-in other words these three men took down the lectures which luther addressed to his students in the course of galatians and rorrer prepared the manuscript for the printer

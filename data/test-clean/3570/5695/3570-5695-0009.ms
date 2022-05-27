@@ -1,1 +1,0 @@
-each will therefore serve about equally well during the earlier stages of social growth

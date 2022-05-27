@@ -1,1 +1,0 @@
-have i told the truth mr gilchrist

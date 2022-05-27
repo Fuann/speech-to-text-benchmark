@@ -1,1 +1,0 @@
-you see i've lived all my life without nonkey the silent one and there was no one to tell me anything

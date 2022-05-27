@@ -1,1 +1,0 @@
-and the men of israel answered the men of judah and said we have ten pots in the king and we have also more right in david than ye why then did ye despise us that our advice should not be first had in bringing back our king

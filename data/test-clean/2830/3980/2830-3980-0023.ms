@@ -1,1 +1,0 @@
-these perverts of the righteousness of christ resist the father and the son and the works of them both

@@ -1,1 +1,0 @@
-in place of a single hamlet in the smallest corner of which the members could have congregated there now are about seventy stakes of zion and about seven hundred organized wards each ward and stake with its full complement of officers and priesthood organizations

@@ -1,1 +1,0 @@
-let us run then said all three and gracefully lifting up the long skirts of their silk dresses they lightly ran across the open space between the lake and the thickest covert of the park

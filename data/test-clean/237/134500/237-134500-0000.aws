@@ -1,1 +1,0 @@
-frank read english slowly and the more he read about this divorce case the angrier he grew

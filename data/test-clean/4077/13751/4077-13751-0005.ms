@@ -1,1 +1,0 @@
-nevertheless the mustard seed among the smallest of all seeds has attained the proportions of a tree and the birds of the air are nesting in its branches the acorn is now in oak offering protection and the sweets of satisfaction to every earnest pilgrim journeying its way for truth

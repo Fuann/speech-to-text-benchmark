@@ -1,1 +1,0 @@
-he moved uneasily and his chair creaked

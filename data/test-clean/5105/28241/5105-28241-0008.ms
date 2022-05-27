@@ -1,1 +1,0 @@
-at the earth has undoubtedly entered upon a new orbit but she is not incurring any probable risk of being precipitated onto the sun

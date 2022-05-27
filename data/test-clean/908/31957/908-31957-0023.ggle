@@ -1,1 +1,0 @@
-i love thee freely as men strive for right i love thee purely as they turn from praise

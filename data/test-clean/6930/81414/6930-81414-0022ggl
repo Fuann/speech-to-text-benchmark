@@ -1,1 +1,0 @@
-i had again been acting under the influence of this man's power

@@ -1,1 +1,0 @@
-nine thousand years have you lapsed since she founded yours and eight thousand since she founded ours as our annals record

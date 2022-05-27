@@ -1,1 +1,0 @@
-the shadow of the raft was clearly outlined upon the surface of the waves

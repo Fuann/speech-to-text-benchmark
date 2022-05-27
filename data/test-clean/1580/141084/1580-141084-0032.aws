@@ -1,1 +1,0 @@
-for a moment gilchrist with upraised hand tried to control his writhing features

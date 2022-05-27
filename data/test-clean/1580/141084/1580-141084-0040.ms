@@ -1,1 +1,0 @@
-he returned carrying his jumping shoes which are provided as you are aware with several sharp spikes

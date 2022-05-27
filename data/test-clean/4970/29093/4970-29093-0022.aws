@@ -1,1 +1,0 @@
-he knew his uncle would be glad to hear that he had at last turned his thoughts to a practical matter

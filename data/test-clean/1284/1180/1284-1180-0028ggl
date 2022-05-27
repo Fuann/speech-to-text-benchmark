@@ -1,1 +1,0 @@
-a bed quilt made of patches of different kinds and colors of cloth all neatly sewed together

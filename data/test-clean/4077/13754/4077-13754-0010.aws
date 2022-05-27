@@ -1,1 +1,0 @@
-in one thousand eight hundred and sixty two a law was enacted with the purpose of suppressing plural marriage and as had been predicted in the national senate prior to its passage it lay for many years a dead letter

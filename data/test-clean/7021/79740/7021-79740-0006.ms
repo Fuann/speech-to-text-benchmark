@@ -1,1 +1,0 @@
-i expect you have been a very good girl angela since you were here last

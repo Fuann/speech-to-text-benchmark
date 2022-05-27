@@ -1,1 +1,0 @@
-those clouds seem as if they were going to crush the sea

@@ -1,1 +1,0 @@
-she wanted a glance of the new books and periodicals and talk of great philanthropies and reforms

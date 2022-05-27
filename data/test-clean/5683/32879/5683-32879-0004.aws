@@ -1,1 +1,0 @@
-but poor rachel lake had more than that stoical hypocrisy which enables the tortured spirits of her sex to lift a pale face through the flames and smile

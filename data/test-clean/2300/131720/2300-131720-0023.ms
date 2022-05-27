@@ -1,1 +1,0 @@
-i think he was perhaps more appreciative than i was of the discipline of the edison construction department and thought it would be well for us to wait until the morning of the fourth before we started up

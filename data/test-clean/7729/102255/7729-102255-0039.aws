@@ -1,1 +1,0 @@
-the inmates being removed at the appointed hour a few cannonballs were fired through the stone walls

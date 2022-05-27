@@ -1,1 +1,0 @@
-the christmas holidays came and she and anne returned to the parsonage and to that happy home circle in which alone their natures expanded amongst all other people they shriveled up more or less

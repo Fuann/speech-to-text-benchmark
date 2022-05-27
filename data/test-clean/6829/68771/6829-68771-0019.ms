@@ -1,1 +1,0 @@
-she was dressed in the regulation costume of the maids at elmhurst a plain black gown with a white apron and cap

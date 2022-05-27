@@ -1,1 +1,0 @@
-tell us said the other the whole story and where saul and heard the story

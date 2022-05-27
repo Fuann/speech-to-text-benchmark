@@ -1,1 +1,0 @@
-that was the chrism of love which loves own crown with sanctifying sweetness did proceed the third upon my lips was folded down in perfect purple state since when indeed i have been proud and said my love my own

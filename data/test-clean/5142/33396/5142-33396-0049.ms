@@ -1,1 +1,0 @@
-here friend take it and he thrust it into the farmer's hand

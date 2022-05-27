@@ -1,1 +1,0 @@
-ps pricer excuse me for writing to you a second time i could not help writing partly to tell you how thankful i am for your kindness and partly to let you know that your advice shall not be wasted however sorrowfully and reluctantly it may be at first followed cb

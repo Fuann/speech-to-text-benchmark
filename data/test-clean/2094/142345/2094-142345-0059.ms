@@ -1,1 +1,0 @@
-this missus poyser said blushing and believing that the captain was really interested in her milk pans and would adjust his opinion of her to the appearance of her dairy

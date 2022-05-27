@@ -1,1 +1,0 @@
-it has no beauty whatsoever no specialty of picturesqueness and all its lines are cramped and poor

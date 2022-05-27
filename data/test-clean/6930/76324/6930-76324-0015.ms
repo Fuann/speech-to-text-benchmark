@@ -1,1 +1,0 @@
-smuggling in the house cleaning paraphernalia into the cellar window unobserved that afternoon proved no easy task for cynthia had added a whisk broom and dust pan to the outfit

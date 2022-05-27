@@ -1,1 +1,0 @@
-the wind did certainly bring back the color to the squires cheeks

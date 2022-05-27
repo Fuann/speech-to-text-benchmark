@@ -1,1 +1,0 @@
-among the country population its place is to some extent taken by savings and home comforts known through the medium of neighbourhood gossip sufficiently to serve the like general purpose of pecuniary repute

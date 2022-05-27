@@ -1,1 +1,0 @@
-beth uneasy at his silenced nudged him

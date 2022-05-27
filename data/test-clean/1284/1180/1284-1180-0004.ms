@@ -1,1 +1,0 @@
-when they were outside young simply latched the door and started up the path

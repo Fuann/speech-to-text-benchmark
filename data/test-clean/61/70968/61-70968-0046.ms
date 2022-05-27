@@ -1,1 +1,0 @@
-nottingham castle was reached and admittance was demanded

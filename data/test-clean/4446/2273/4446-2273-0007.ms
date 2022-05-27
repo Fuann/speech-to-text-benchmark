@@ -1,1 +1,0 @@
-those fellows are all very loyal even mayhall

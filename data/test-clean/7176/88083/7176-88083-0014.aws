@@ -1,1 +1,0 @@
-the hawk sat upon the branch and watched his quarry swimming beneath the surface

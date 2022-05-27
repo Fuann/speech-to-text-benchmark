@@ -1,1 +1,0 @@
-we do not know how plato would have arranged his own dialogues or whether the thought of arranging any of them besides the two trilogies which he has expressly connected was ever present to his mind

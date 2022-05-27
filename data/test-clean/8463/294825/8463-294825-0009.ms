@@ -1,1 +1,0 @@
-this compulsion leads nemo into ugly contradictions he is a fighter for freedom yet all who board his ship or imprisoned there for good he works to save lives both human and animal yet he himself creates a holocaust he detests imperialism yet he lays personal claim to the south pole

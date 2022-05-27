@@ -1,1 +1,0 @@
-and the wan oracle having spoken she sat down in the same sort of abstraction again beside dorcas and she looked full in her cousin's eyes

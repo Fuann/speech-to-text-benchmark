@@ -1,1 +1,0 @@
-della had a young sister named maria and a cousin whose name was jane

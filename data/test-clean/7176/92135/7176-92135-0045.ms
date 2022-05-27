@@ -1,1 +1,0 @@
-lord john taking out gold cigarette case from his left hand upper waistcoat pocket

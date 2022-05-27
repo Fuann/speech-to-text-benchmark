@@ -1,1 +1,0 @@
-before starting it was indispensable that the engine of the dobrina should be repaired to sail under canvas only would in contrary winds and rough seas be both tedious and difficult

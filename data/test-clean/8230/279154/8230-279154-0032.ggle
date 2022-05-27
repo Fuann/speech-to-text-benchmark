@@ -1,1 +1,0 @@
-it is this that is of interest to theory of knowledge

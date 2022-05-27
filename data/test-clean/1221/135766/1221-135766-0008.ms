@@ -1,1 +1,0 @@
-mindful however of her own errors and misfortunes she early sought to impose a tender but strict control over the infant immortality that was committed to her charge

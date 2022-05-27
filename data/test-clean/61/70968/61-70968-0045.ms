@@ -1,1 +1,0 @@
-pray follow us with mind in my lord sheriff's men

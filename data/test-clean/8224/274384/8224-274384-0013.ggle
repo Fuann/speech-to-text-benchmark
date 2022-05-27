@@ -1,1 +1,0 @@
-his death in this conjuncture was a public misfortune

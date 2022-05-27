@@ -1,1 +1,0 @@
-if a layman in giving baptism pour the water before saying the words is the child baptized

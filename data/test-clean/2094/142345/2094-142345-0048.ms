@@ -1,1 +1,0 @@
-said captain donnithorne sitting himself where he could see along the short passage to the open dairy door

@@ -1,1 +1,0 @@
-yes but the meridian of the palais royale is the most exact

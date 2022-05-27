@@ -1,1 +1,0 @@
-from rubbing shelters with scientists in our little universe by the botanical gardens the boy had come to know a thing or two

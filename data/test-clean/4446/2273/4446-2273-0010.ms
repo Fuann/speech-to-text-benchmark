@@ -1,1 +1,0 @@
-there was watercress soup and soul and a delightful omelet stuffed with mushrooms and truffles and two small rare ducklings and artichokes and a dry yellow rhone wine of which bartley had always been very fond

@@ -1,1 +1,0 @@
-he reached up among the branches and began to pick the sweet insipid fruit long ivory coloured berries tipped with faint pink like white coral that fall to the ground unheeded all summer through

@@ -1,1 +1,0 @@
-we had meters in which there were two bottles of liquid

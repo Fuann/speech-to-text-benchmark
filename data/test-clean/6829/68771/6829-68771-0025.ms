@@ -1,1 +1,0 @@
-she sat down in a rocking chair and clasping her hands in her lap rocks slowly back and forth i'm sorry said beth

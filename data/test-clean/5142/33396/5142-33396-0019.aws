@@ -1,1 +1,0 @@
-oh it is better to live on the sea and let other men raise your crops and cook your meals

@@ -1,1 +1,0 @@
-of course he did not realize that it was i who was knocking but none the less his conduct was very uncurious and indeed under the circumstances rather suspicious

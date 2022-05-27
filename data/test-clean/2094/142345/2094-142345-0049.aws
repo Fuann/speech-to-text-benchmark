@@ -1,1 +1,0 @@
-no sir he isn't he's gone to rossiter to see mr west the factor about the wool

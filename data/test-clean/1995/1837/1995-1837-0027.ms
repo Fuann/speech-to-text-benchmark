@@ -1,1 +1,0 @@
-aren't she hurried until sweeping down to the lagoon and the island's low the cotton lay before her

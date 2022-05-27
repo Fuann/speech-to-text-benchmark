@@ -1,1 +1,0 @@
-it would be clear to you from what i have said that only you could have let this young man out since you were left in the room and must have locked the door when you went out

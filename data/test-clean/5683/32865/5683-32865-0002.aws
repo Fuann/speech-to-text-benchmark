@@ -1,1 +1,0 @@
-he had his hand upon lakes shoulder

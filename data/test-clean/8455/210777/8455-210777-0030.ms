@@ -1,1 +1,0 @@
-mr never bend began the captain and i observed that up to that moment he had generally addressed me as president there cannot be denied that we have come here on an unpleasant mission

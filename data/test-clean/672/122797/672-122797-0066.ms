@@ -1,1 +1,0 @@
-why one morning there came a quantity of people and set to work in the loft

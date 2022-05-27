@@ -1,1 +1,0 @@
-straight away the hawk glided from his perch and darted after him

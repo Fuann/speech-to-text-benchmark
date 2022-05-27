@@ -1,1 +1,0 @@
-and the old gentleman was so delighted with his success that he had to burst out into a series of short happy bits of laughter that occupied quite a space of time

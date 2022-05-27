@@ -1,1 +1,0 @@
-a house smells of smoke a ship smells of frolic

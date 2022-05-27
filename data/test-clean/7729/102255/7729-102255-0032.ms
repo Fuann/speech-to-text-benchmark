@@ -1,1 +1,0 @@
-the free state hotel a stone building in dimensions fifty by seventy feet three storeys high and handsomely furnished previously occupied only for lodging rooms on that day for the first time opened its table accommodations to the public and provided a free dinner in honor of the occasion

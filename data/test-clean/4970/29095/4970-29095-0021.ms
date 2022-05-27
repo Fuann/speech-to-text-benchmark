@@ -1,1 +1,0 @@
-but neither st gerard nor broadstreet neither wonders of the ment nor the glories of the hall where the ghosts of our fathers sit always signing the declaration impressed the visitors so much as the splendors of the chestnut st windows and the bargains on eighth st

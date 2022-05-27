@@ -1,1 +1,0 @@
-all that i am doing is to use its logical tunability as a help in the analysis of what occurs when we remember

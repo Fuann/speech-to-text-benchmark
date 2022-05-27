@@ -1,1 +1,0 @@
-the wizard of oz who used to be a humbug and knew no magic at all has been taking lessons of glinda and i'm told he is getting to be a pretty good wizard but he is merely the assistant of the great sorcerers

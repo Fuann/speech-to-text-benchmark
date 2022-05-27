@@ -1,1 +1,0 @@
-one perceives without understanding it a hideous murmur sounding almost like human accents but more nearly resembling a howl than an articulate word

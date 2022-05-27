@@ -1,1 +1,0 @@
-other circumstances permitting that instinct disposes men to look with favour upon productive efficiency and on whatever is of human use

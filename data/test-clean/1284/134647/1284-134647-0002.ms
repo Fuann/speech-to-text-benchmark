@@ -1,1 +1,0 @@
-but this inestimable privilege was soon violated with the knowledge of truth the emperor imbibed the maxims of persecution and the sects which dissented from the catholic church were afflicted and oppressed by the triumph of christianity

@@ -1,1 +1,0 @@
-it sounded dull that sounded strange and all the more so because of his main condition which was

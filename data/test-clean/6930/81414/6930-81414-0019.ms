@@ -1,1 +1,0 @@
-while chair picked up something from the ground and looked at it

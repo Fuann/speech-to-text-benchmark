@@ -1,1 +1,0 @@
-larkspur bit me again this morning for the third time

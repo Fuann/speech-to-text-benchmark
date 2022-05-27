@@ -1,1 +1,0 @@
-i've seen lots of that kind in my day

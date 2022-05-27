@@ -1,1 +1,0 @@
-he looked up rather ungraciously but motioned them to be seated

@@ -1,1 +1,0 @@
-and then he told all about his youth and the little mice had never heard the like before and they listened and said

@@ -1,1 +1,0 @@
-i had a common patience with you

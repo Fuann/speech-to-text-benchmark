@@ -1,1 +1,0 @@
-when it is a question of probing a wound a gulf a society since when has it been considered wrong to go too far to go to the bottom

@@ -1,1 +1,0 @@
-moreover had the people been inclined to rebellion what greater opportunity could they have wished

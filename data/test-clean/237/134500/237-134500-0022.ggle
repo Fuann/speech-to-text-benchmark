@@ -1,1 +1,0 @@
-when she used to tell me about him i always wondered whether she wasn't a little in love with him

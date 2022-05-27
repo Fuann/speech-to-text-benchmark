@@ -1,1 +1,0 @@
-they then renewed their journey and under the better light made a safe crossing of the stable roofs

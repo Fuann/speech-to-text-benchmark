@@ -1,1 +1,0 @@
-naomi shook her forefinger reproachfully at them as if the two sturdy young farmers had been two children

@@ -1,1 +1,0 @@
-no words were spoken no language was uttered saved out of wailing and hissing and that somehow was indistinct as if it existed in fancy and not in reality

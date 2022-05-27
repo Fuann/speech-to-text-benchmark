@@ -1,1 +1,0 @@
-my heart doth pleased that thou in him doth lie a closet never pierced with crystal eyes but the defendant doth that plea deny and says in him thy fair appearance lies

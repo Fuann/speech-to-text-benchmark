@@ -1,1 +1,0 @@
-the brown ground beneath is left for the most part one touch of black is put for the hollow too delicate lines of dark gray to find the outer curve and one little quivering touch of white draws the inner edge of the mandible

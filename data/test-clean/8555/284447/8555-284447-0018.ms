@@ -1,1 +1,0 @@
-at once the goat gave a leap escaped from the soldiers and with bowed head rushed upon the booleroo

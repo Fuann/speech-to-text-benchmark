@@ -1,1 +1,0 @@
-fortunately said mr vanderpool northerners and southerners all arriving at a better mutual understanding on most of these matters

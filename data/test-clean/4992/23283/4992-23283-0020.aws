@@ -1,1 +1,0 @@
-i have never yet however been vanquished by them and even upon this occasion my reason shall combat them to the last and my reason shall fail me before i do wrong

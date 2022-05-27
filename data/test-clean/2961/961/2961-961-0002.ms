@@ -1,1 +1,0 @@
-and therefore to you i turned to mius citizen of locris who are at once a philosopher in a statesman and to you gradius whom all athenians know to be similarly accomplished and to hermocrates whose also fitted by nature and education to share in our discourse

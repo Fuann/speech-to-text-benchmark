@@ -1,1 +1,0 @@
-for once in a way i proved a true prophet

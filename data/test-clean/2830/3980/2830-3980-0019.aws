@@ -1,1 +1,0 @@
-i knew nothing of the doctrine of faith because we were taught sophistry instead of certainty and nobody understood spiritual boasting

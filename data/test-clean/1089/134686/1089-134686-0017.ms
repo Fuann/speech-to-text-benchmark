@@ -1,1 +1,0 @@
-stephen leaning back and drawing idly on his scribbler listened to the talk about him which heron checked from time to time by saying

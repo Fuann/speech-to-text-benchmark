@@ -1,1 +1,0 @@
-then turning towards me he says that i look like a foreigner and when i say that i am an italian he begins to speak to me of the core to the city of the theatres and at last he offers to accompany me everywhere

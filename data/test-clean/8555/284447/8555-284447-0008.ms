@@ -1,1 +1,0 @@
-rich jewels of blue stones glittered upon their persons and the royal ladies were fully as gorgeous as they were haughty and overbearing

@@ -1,1 +1,0 @@
-her sea going qualities were excellent and would have amply sufficed for a circumnavigation of the globe

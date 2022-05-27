@@ -1,1 +1,0 @@
-it will be well for you if you join not with those who instead of kites fly falcons who instead of obeying the last words of the great cloud shepherd to feed his sheep live the lives how much less than vanity of the warwolf and the gear eagle

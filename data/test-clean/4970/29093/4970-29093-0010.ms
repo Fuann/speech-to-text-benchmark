@@ -1,1 +1,0 @@
-he had no friend wise enough to tell him to step into the dorking convention then in session make a sketch of the men and women on the platform and take it to the editor of the daily grapevine and see what he could get a line for it

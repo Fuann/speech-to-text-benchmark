@@ -1,1 +1,0 @@
-the night was spent in packing up and writing letters for phillip would not take such an important step without informing his friends

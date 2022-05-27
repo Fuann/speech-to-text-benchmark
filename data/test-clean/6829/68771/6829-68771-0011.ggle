@@ -1,1 +1,0 @@
-tables were spread on the lawn and a dainty but substantial repast was to be served

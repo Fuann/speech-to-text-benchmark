@@ -1,1 +1,0 @@
-oh tis the first tis flattery in my scene and my great mind most kingly drinks it up mine eye well knows what with his gust is green and to his palette doth prepare the cup if it be poisoned tis the lesser sin that mine eye loves it and doth first begin

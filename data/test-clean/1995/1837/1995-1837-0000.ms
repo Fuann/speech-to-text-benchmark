@@ -1,1 +1,0 @@
-he knew the silver flees his anzora's must be ruined

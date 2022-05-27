@@ -1,1 +1,0 @@
-let him come in then said the king and as if colbert had been listening at the door for the purpose of keeping himself accurate with the conversation he entered as soon as the king had pronounced his name to the two cartiers

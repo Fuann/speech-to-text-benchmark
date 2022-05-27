@@ -1,1 +1,0 @@
-otherwise paul should have written grace from god the father and peace from our lord jesus christ

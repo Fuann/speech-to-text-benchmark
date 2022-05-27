@@ -1,1 +1,0 @@
-somehow of all the days when the home feeling was the strongest this day it seemed as if she could bear it no longer

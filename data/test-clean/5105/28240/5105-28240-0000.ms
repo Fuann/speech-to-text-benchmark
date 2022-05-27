@@ -1,1 +1,0 @@
-fast as his legs could carry him cervidae had made his way to the top of the cliff

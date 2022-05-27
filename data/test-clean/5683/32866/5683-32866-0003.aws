@@ -1,1 +1,0 @@
-in the meantime i had formed a new idea of her

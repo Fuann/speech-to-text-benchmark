@@ -1,1 +1,0 @@
-do not suppose however that missus poyser was elderly or shrewish in her appearance she was a good looking woman not more than eight and thirty a fair complexion and sandy hair well shapen light footed

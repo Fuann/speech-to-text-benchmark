@@ -1,1 +1,0 @@
-do you suppose the miniature was a copy of the same thing

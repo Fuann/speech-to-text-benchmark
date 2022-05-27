@@ -1,1 +1,0 @@
-angoor pain painful to hear

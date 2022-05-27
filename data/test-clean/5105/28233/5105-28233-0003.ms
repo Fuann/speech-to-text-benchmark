@@ -1,1 +1,0 @@
-we don't spend tops as a favorite saying amongst artillery officers indicating that they do not shirk their duty by frivolous pursuits but it must be confessed that cervidae being naturally idle was very much given to spinning tops

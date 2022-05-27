@@ -1,1 +1,0 @@
-to diminish the number of the shady to augment the number of the luminous that is the object

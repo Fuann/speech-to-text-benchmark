@@ -1,1 +1,0 @@
-thought kills me that i am not thought to leap large lengths of miles when thou art gone but that so much of earth and water wrought i must attend times leisure with my moan receiving not by elements so slow but heavy tears badges of either's woe

@@ -1,1 +1,0 @@
-he well knew that he should never see his dear old comrades the little bushes and flowers around him any more perhaps not even the birds

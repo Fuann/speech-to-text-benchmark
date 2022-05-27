@@ -1,1 +1,0 @@
-at the emerald city where our princess ozma lives green is the popular color

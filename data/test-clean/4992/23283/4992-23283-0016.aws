@@ -1,1 +1,0 @@
-again he searched his own thoughts nor ineffectually as before

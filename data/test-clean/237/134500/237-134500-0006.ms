@@ -1,1 +1,0 @@
-just smell the wild roses they are always so spicy after a rain

@@ -1,1 +1,0 @@
-whether or not this principle is liable to exceptions every one would agree that it has a broad measure of truth though the word exactly might seem an overstatement and it might seem more correct to say that ideas approximately represent impressions

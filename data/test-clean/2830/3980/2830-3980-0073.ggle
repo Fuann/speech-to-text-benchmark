@@ -1,1 +1,0 @@
-this attitude springs from a false conception of sin the conception that sin is a small matter easily taken care of by good works that we must present ourselves unto god with a good conscience that we must feel no sin before we may feel that christ was given for our sins

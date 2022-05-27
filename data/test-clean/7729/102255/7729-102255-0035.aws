@@ -1,1 +1,0 @@
-the military force partly rabble partly organized had meanwhile moved into the town

@@ -1,1 +1,0 @@
-he gazed about perplexed astonished

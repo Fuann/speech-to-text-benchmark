@@ -1,1 +1,0 @@
-from these again sprang barricaded and fortified dwellings camps and scout parties finally culminating in roving guerrilla bands half partisan half predatory

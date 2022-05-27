@@ -1,1 +1,0 @@
-first as a paris stockbroker later as a celebrated author and yachtsman he went on frequent voyages to britain's america the mediterranean

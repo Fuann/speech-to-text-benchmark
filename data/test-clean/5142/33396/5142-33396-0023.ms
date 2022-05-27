@@ -1,1 +1,0 @@
-it was so dark that i could see nothing but a few sparks on the hearth

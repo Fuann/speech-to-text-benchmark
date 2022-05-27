@@ -1,1 +1,0 @@
-i like to talk to carl about new york and what a fellow can do there

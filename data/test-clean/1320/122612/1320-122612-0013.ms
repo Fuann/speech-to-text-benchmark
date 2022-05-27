@@ -1,1 +1,0 @@
-a circle of a few one hundred feet in circumference was drawn and each of the party took a segment for his portion

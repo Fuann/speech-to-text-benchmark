@@ -1,1 +1,0 @@
-they were later used as reserve machines and finally with the engine retired from service as part of the collection of edisonia but they remain in practically as good condition as one installed in one thousand eight hundred and eighty three

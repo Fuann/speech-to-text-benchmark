@@ -1,1 +1,0 @@
-the fireball half of it white half azure blue and the size of a ten inch shell moved slowly about the raft but revolving on its own axis with astonishing velocity as if whip round by the force of the whirlwind

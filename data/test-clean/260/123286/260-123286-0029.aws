@@ -1,1 +1,0 @@
-those huge creatures attacked each other with the greatest animosity

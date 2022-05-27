@@ -1,1 +1,0 @@
-they set up a crane over the fire and hung the pot upon it and we sat and watched it boil while we joked at last the supper began

@@ -1,1 +1,0 @@
-this nobleman's character though celebrated for political courage and conduct was very low for military prowess and after some skirmishes in which he was worsted he here allowed montrose to escape him

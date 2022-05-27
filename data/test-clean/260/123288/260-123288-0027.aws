@@ -1,1 +1,0 @@
-a suffocating smell of nitrogen fills the air it enters the throat it fills the lungs

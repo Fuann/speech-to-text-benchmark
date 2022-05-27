@@ -1,1 +1,0 @@
-i have not asked him ruth replied with a look that might imply that she was one of those determined little bodies who first made up her own mind and then compelled others to make up theirs in accordance with hers

@@ -1,1 +1,0 @@
-the log and the compass therefore were able to be called upon to do the work of the sextant which had become utterly useless

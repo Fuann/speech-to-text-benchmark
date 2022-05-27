@@ -1,1 +1,0 @@
-after an apprenticeship on a merchant ship he had entered the imperial navy and had already reached the rank of lieutenant when the count appointed him to the charge of his own private yacht in which he was accustomed to spend by far the greater part of his time throughout the winter generally cruising in the mediterranean whilst in the summer he visited more northern waters

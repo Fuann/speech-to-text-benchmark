@@ -1,1 +1,0 @@
-house cleaning a domestic upheaval that makes it easy for the government to enlist all the soldiers it needs

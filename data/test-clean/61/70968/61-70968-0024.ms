@@ -1,1 +1,0 @@
-spoke the squire losing all patient and it was to you that i gave another person consolation

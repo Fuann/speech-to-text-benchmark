@@ -1,1 +1,0 @@
-under ordinary conditions reynolds was sure to be elected but the committee proposed to sacrifice him in order to elect hopkins

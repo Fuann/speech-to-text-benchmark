@@ -1,1 +1,0 @@
-they are beyond all other works than i know existing dependent for their effect on low subdued tones their favorite choice and time of day being either dawn or twilight and even their brightest sunsets produced chiefly out of gray paper

@@ -1,1 +1,0 @@
-all my danger and sufferings were needed to strike a spark of human feeling out of him but now that i am well his nature has resumed its sway

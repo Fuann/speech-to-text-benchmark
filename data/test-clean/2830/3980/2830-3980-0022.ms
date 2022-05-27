@@ -1,1 +1,0 @@
-the claw seemed superfluous on first sight

@@ -1,1 +1,0 @@
-andrew's face grew red

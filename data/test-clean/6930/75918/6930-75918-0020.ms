@@ -1,1 +1,0 @@
-bragalone watched for some time the conduct of the two lovers listened to the loud and uncivil slumbers of mannequin amp who snored as imperiously as though he was wearing his blue and gold instead of his violet suit

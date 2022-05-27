@@ -1,1 +1,0 @@
-american school boys read with emotions of horror of the albigensian driven beaten and killed with a papal legate directing the butchery and of the vaudois hunted and hounded like beasts as the effect of a royal decree and they yet shall read in the history of their own country of scenes as terrible as these in the exhibition of injustice and inhuman hate

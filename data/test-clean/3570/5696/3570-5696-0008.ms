@@ -1,1 +1,0 @@
-but it is on other grounds worth noting that the term waste in the language of everyday life implies deprecation of what is characterized as wasteful

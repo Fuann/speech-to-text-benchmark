@@ -1,1 +1,0 @@
-it was a pain to see them and a sword like pain to see the signs of adolescence that made repellent their pitiable nakedness

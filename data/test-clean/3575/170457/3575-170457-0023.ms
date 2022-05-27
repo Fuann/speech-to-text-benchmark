@@ -1,1 +1,0 @@
-i carefully avoid any appearance of preoccupation and eccentricity which might lead those i live amongst to suspect the nature of my pursuits

@@ -1,1 +1,0 @@
-but the affair was magnified as a crowning proof that the free state men were insurrectionists and outlaws

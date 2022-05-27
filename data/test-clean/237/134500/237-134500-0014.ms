@@ -1,1 +1,0 @@
-and amial mowed his way slowly down toward the cherry trees

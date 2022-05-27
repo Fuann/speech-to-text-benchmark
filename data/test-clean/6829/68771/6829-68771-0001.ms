@@ -1,1 +1,0 @@
-one of mr hopkins's first tasks after calling his faithful henchman around him was to make a careful canvas of the voters of his district to see what was still to be accomplished

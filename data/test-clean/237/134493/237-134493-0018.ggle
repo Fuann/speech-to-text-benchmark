@@ -1,1 +1,0 @@
-there is even a white row of beehives and the orchard under the walnut trees

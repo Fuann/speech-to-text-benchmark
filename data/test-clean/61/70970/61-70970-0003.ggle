@@ -1,1 +1,0 @@
-if for a whim you beggar yourself i cannot stay you

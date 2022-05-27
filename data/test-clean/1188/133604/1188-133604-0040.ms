@@ -1,1 +1,0 @@
-the crapness and the poverty are all intended

@@ -1,1 +1,0 @@
-find some cross wells there big plantations rated at two hundred and fifty thousand

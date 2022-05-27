@@ -1,1 +1,0 @@
-any one thereabouts would have told you that this was one of the richest farms on the divide and that the farmer was a woman alexandra bergson

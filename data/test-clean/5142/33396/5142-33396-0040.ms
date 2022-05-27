@@ -1,1 +1,0 @@
-and these shall follow your thralls in the same way

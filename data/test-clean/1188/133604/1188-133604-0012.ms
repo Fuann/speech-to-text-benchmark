@@ -1,1 +1,0 @@
-it may be that a great colorless will use his utmost force of color as a singer his full power of voice but loud or low the virtue is in both cases always in refinement never in loudness

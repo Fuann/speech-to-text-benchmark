@@ -1,1 +1,0 @@
-yes but that's just the beauty of her passion

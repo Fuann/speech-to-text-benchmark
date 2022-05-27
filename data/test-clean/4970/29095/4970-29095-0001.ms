@@ -1,1 +1,0 @@
-she tried this morning and air or two upon the piano sang a simple song in a sweet but slightly metallic voice and then seating herself by the open window red phillip's letter

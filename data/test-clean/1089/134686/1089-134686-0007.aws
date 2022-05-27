@@ -1,1 +1,0 @@
-a cold lucid indifference reigned in his soul

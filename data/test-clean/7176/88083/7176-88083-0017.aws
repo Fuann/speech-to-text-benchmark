@@ -1,1 +1,0 @@
-but at this point in the rapids it was impossible for him to stay down

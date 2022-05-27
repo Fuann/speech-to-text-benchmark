@@ -1,1 +1,0 @@
-with many qualifications with more qualifications as the patriarchal tradition has gradually weakened the general rule is felt to be right and binding that women should consume only for the benefit of their masters

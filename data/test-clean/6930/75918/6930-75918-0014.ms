@@ -1,1 +1,0 @@
-but continued row not interrupted by this movement of his friend heaven be praised the french who are pronounced to be thoughtless and indiscreet reckless even are capable of bringing a calm and sound judgment to bear on matters of such high importance

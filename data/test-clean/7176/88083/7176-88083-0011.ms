@@ -1,1 +1,0 @@
-in fact he had just finished it the last of the trout's tale had just vanished with a spasm down his strained gullet when the baffled hawk caught sight of him and swooped

@@ -1,1 +1,0 @@
-there was something individual about the great farm a most unusual primness and care for detail

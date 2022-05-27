@@ -1,1 +1,0 @@
-exclaimed bill harman to his wife as they went through the lighted hall

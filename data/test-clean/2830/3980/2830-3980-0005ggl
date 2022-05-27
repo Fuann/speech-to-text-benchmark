@@ -1,1 +1,0 @@
-do you suppose that god for the sake of a few lutheran heretics would disown his entire church

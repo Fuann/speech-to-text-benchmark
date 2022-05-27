@@ -1,1 +1,0 @@
-we moderns however see the absurdity of it

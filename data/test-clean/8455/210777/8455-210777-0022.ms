@@ -1,1 +1,0 @@
-of what missus neverborn had gone through in providing birds beasts and fishes not to talk of tarts and jellies for the dinner of that day no one but myself can have any idea but it must be admitted that she accomplished her task with thorough success

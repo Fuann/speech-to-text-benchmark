@@ -1,1 +1,0 @@
-when this had been accomplished the booleroo leaned over to try to discover why the frame rolled away seemingly of its own accord and he was the more puzzled because it had never done such a thing before

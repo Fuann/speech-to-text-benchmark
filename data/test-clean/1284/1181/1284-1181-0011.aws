@@ -1,1 +1,0 @@
-very carefully the magician removed this powder placing it all together in a golden dish where he mixed it with a golden spoon

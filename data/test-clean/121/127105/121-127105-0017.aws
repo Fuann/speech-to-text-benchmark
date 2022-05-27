@@ -1,1 +1,0 @@
-it was almost the tone of hope everybody will stay

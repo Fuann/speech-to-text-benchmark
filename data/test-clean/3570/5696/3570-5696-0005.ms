@@ -1,1 +1,0 @@
-throughout the entire evolution of conspicuous expenditure whether of goods or of services or human life runs the obvious implication that in order to effectually mend the consumer's good fame it must be an expenditure of superfluities

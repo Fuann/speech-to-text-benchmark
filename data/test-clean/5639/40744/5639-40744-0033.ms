@@ -1,1 +1,0 @@
-her bearing was graceful and animated she led her son by the hand and before her walked two maids with wax lights and silver candlesticks

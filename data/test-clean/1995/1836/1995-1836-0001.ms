@@ -1,1 +1,0 @@
-at last the cotton combine was to all appearances and assured fact and he was slated for the senate

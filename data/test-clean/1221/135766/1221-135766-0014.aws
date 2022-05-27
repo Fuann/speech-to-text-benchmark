@@ -1,1 +1,0 @@
-pearl saw and gazed intently but never sought to make acquaintance

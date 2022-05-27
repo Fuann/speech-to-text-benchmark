@@ -1,1 +1,0 @@
-once an action he was leading a detachment of infantry through an entrenchment

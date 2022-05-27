@@ -1,1 +1,0 @@
-did not christ himself say i am the way and the truth and the life no man cometh unto the father but by me

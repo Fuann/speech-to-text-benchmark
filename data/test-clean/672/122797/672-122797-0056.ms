@@ -1,1 +1,0 @@
-said the fur tree thinking over what he had himself related

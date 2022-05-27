@@ -1,1 +1,0 @@
-simmons two books mentioned in an earlier lecture do not touch knowledge memory at all closely

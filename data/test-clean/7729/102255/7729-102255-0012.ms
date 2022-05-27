@@ -1,1 +1,0 @@
-several one hundred free state men promptly responded to the summons

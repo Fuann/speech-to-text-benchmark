@@ -1,1 +1,0 @@
-of course he reflected she always had that combination of something homely and sensible and something utterly wild and daft

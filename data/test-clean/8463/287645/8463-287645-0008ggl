@@ -1,1 +1,0 @@
-as usual nothing was done in the way of punishment

@@ -1,1 +1,0 @@
-god bless you friend i do believe your scent is not greatly wrong when the matter is duly considered and keeping eternity before the eyes though much depends on the natural gifts and the force of temptation

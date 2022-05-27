@@ -1,1 +1,0 @@
-he shall not leave you day or night whether you are working or playing or sleeping

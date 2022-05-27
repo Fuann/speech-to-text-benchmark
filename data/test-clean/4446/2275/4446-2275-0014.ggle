@@ -1,1 +1,0 @@
-i can't stand seeing you miserable

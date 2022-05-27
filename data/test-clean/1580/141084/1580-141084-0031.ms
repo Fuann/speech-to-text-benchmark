@@ -1,1 +1,0 @@
-we want to know mr gilchrist how you an honourable man ever came to commit such an action as that of yesterday

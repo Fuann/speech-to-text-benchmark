@@ -1,1 +1,0 @@
-in short he becomes a prominent figure in london society and if he is not careful somebody will say so

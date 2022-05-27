@@ -1,1 +1,0 @@
-she was therefore most agreeably surprised to hear mr cresswell express himself so cordially as approving of education

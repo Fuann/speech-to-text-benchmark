@@ -1,1 +1,0 @@
-the english it is evident had they not been previously assured of receiving the king would never have parted with so considerable a sum and while they weaken themselves by the same measure have strengthened the people with whom they must afterwards have so material and interest to discuss

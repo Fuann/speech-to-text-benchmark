@@ -1,1 +1,0 @@
-so there came a step and a little rustling of feminine draperies the small door opened and rachel entered with her hand extended and a pale smile of welcome

@@ -1,1 +1,0 @@
-did the fervent latter day st a temple is not simply a church building a house for religious assembly

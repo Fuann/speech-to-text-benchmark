@@ -1,1 +1,0 @@
-like his unfortunate little cousin the teal he too had felt the fear of death smitten into his heart and was heading desperately for the refuge of some dark overhanging bank deep fringed with weeds where the dreadful eye of the hawk should not discern him

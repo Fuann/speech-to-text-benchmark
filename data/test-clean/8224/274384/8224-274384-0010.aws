@@ -1,1 +1,0 @@
-before the settlement of terms the administration must be possessed entirely by the parliaments of both kingdoms and how incompatible that scheme with the liberty of the king is easily imagined

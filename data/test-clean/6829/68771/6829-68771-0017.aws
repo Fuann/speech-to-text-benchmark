@@ -1,1 +1,0 @@
-the housekeeper led the way and beth followed

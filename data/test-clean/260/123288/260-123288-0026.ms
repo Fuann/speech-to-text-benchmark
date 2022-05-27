@@ -1,1 +1,0 @@
-we shall be blown up but no the dazzling disk of mysterious light nimbly leaps aside it approaches hans who fixes his blue eye upon its steadily it threatens the head of my uncle who falls upon its knees with his head down to avoid it

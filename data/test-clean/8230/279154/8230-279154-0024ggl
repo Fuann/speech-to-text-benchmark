@@ -1,1 +1,0 @@
-the first of our vague but indubitable data is that there is knowledge of the past

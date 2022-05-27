@@ -1,1 +1,0 @@
-my bed was unexceptionally comfortable but in my then mood i could have wished it a great deal more modern

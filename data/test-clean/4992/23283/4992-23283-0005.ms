@@ -1,1 +1,0 @@
-not that i know of not one more that i know of he replied with astonishment at what she had insinuated and yet with a perfect assurance that she was in the wrong

@@ -1,1 +1,0 @@
-while the old gold and the marble stays forever gleaming its soft strong blaze calm in the early evening glow

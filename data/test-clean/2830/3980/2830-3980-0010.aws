@@ -1,1 +1,0 @@
-either he calls ministers through the agency of men or he calls them directly as he called the prophets and apostles

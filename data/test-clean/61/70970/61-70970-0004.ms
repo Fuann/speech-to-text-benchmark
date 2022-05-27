@@ -1,1 +1,0 @@
-but take it whilst i live and where monteith shield in the days when my eyes can be rejoiced by so brave a sight for you will never disgrace our stitchin i warrant me

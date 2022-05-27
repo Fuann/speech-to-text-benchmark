@@ -1,1 +1,0 @@
-whenever as in these cases the menial service in question has to do directly with the primary leisure employments of fighting and hunting it easily acquires a reflected honorific character

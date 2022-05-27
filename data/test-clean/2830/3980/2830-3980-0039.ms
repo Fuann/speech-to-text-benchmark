@@ -1,1 +1,0 @@
-the terms of grace and peace are common terms with paul and are now pretty well understood

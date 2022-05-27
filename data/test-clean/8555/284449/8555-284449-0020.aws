@@ -1,1 +1,0 @@
-the combined bands of both the countries played the music and a fine supper was served

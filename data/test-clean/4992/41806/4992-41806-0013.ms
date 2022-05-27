@@ -1,1 +1,0 @@
-approaching the dining table he carefully placed the article in the centre and removed the cloth

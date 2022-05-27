@@ -1,1 +1,0 @@
-she was a large homely woman they were calm and white people with no reputation in the community

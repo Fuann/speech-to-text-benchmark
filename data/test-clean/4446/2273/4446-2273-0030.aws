@@ -1,1 +1,0 @@
-alexander went over and opened the window for her

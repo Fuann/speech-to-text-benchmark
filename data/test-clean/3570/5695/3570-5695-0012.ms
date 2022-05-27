@@ -1,1 +1,0 @@
-it is also noticeable that the serviceability of consumption as a means of repute as well as the insistence on it as an element of decency is at its best in those portions of the community where the human contact of the individual is widest and the mobility of the population is greatest

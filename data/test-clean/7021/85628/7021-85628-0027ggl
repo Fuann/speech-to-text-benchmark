@@ -1,1 +1,0 @@
-if you dressed in silk and gold from top to toe you could not look any nicer than in your little red cap

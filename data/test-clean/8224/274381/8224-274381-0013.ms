@@ -1,1 +1,0 @@
-from the same men new regiments and new companies were formed different officers appointed and the whole military force put into such hands as the independence could rely on

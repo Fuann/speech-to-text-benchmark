@@ -1,1 +1,0 @@
-then thou let me explain to you the order of our entertainment first timaeus who is a natural philosopher will speak of the origin of the world going down to the creation of men and then i shall receive the men whom he has created and some of whom will have been educated by you and introduce them to you as the last athenian citizens of whom the egyptian records spoke

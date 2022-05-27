@@ -1,1 +1,0 @@
-without going to any such extreme as this we can easily see on reflection how vast and influence on the ideas and conceptions as well as on the principles of action in mature years must be exerted by the nature and character of the images which the period of infancy and childhood impress upon the mind

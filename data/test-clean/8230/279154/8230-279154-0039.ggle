@@ -1,1 +1,0 @@
-this knowledge is memory in one sense though in another it is not

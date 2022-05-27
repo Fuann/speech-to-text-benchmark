@@ -1,1 +1,0 @@
-surface dust at least had been removed and the fine old furniture gave a hint of its real elegance and polish

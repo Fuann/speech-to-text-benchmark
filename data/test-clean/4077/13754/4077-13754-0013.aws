@@ -1,1 +1,0 @@
-before this travesty on the administration of law could be brought before the court of last resort and there met with the reversal and rebuke it deserved men were imprisoned under sentence of many years duration

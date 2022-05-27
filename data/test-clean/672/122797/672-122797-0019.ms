@@ -1,1 +1,0 @@
-rejoice in thy own fresh youth

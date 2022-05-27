@@ -1,1 +1,0 @@
-the retreat will begin on wednesday afternoon in honor of saint francis xavier whose feast day is saturday

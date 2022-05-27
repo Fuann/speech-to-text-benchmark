@@ -1,1 +1,0 @@
-rudolfo and his companions were their faces muffled in their cloaks stared rudely and insolently at the mother the daughter and the servant maid

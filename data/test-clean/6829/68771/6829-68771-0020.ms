@@ -1,1 +1,0 @@
-then she gave a little laugh and replied no miss beth i'm elizabeth parsons

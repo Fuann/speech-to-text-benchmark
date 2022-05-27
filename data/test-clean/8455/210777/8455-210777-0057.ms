@@ -1,1 +1,0 @@
-but in their selection of a constitution the briton euless have unfortunately allowed themselves but one deliberate assembly and hence has sprung their present difficulties

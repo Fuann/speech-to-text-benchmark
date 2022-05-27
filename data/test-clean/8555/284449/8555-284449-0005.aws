@@ -1,1 +1,0 @@
-when he finished she said cheerfully

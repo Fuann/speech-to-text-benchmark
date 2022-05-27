@@ -1,1 +1,0 @@
-i know his farm is in better order than any other within ten miles of us and as for the kitchen he added smiling i don't believe there's one in the kingdom to beat it

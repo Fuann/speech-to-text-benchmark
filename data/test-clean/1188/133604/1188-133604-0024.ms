@@ -1,1 +1,0 @@
-nothing will be more precious to you i think in the practical study of art than the conviction which will force itself on you more and more every hour of the way all things are bound together little and great in spirit and in matter

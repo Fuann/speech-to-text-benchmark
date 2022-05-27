@@ -1,1 +1,0 @@
-lifting the iron hammer that hung at the portal hester prynne gave a summons which was answered by one of the governor's bond servants a freeborn englishman but now a seven years slave

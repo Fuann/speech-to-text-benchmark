@@ -1,1 +1,0 @@
-ill and troubled dear troubled in mind and miserably nervous

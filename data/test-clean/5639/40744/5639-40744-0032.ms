@@ -1,1 +1,0 @@
-for god's sake my lady mother give me a wife who would be an agreeable companion not one who will disgust me so that we may both bear evenly and with mutual good will the yoke imposed on us by heaven instead of pulling this way and that way and fretting each other to death

@@ -1,1 +1,0 @@
-but when it came to be a question of lighting a scattered suburb a group of dwellings on the outskirts a remote country residence or a farmhouse the alternating currents in all elements save its danger was andy's ideal

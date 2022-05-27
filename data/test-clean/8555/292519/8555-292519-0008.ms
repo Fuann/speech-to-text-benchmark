@@ -1,1 +1,0 @@
-over their track lined city street the young man the grinning man pass

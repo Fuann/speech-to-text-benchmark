@@ -1,1 +1,0 @@
-but captain bill made no such attempt knowing it would be useless

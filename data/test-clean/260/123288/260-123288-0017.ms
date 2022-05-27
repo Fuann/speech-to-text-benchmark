@@ -1,1 +1,0 @@
-is the atmospheric condition having once reached this density to become final

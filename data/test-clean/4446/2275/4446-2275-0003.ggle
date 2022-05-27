@@ -1,1 +1,0 @@
-the room was empty when he entered

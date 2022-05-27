@@ -1,1 +1,0 @@
-to embarrass this damaging exposure judge lecompte issued a writ against the ex governor on a frivolous charge of contempt

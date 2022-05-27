@@ -1,1 +1,0 @@
-to teach reading means to light the fire every syllable spelled out sparkles

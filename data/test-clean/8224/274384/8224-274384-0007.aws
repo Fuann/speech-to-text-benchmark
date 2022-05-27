@@ -1,1 +1,0 @@
-have mercy lord on me i pray for men would me devour

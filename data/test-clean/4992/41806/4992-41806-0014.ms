@@ -1,1 +1,0 @@
-things out of myself i've never seen anything osh papa good men if he took time enough and glue enough so i carried this little feller home in a bushel basket one night last month and i've spent eleven evenings putting him together

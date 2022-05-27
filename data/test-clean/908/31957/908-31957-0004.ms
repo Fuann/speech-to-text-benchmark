@@ -1,1 +1,0 @@
-shall i never miss home talk and blessing and the common kiss that comes to each in turn nor count it strange when i look up to drop on a new range of walls and floors another home than this

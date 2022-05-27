@@ -1,1 +1,0 @@
-i'm glad she's held her own since

@@ -1,1 +1,0 @@
-the strollers took their part in it with hearty zest now that they had some chance of beating off their foes

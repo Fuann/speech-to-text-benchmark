@@ -1,1 +1,0 @@
-in strict accuracy nothing should be included under the head of conspicuous waste but such expenditure as is incurred on the ground of an invidious pecuniary comparison

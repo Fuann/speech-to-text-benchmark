@@ -1,1 +1,0 @@
-thirty men one after another raised their horns and said

@@ -1,1 +1,0 @@
-and he placed it in that gentlemen's fingers who now took his turn at the lamp and contemplated the little parallelogram with a gleam of sly amusement

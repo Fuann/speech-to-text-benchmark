@@ -1,1 +1,0 @@
-did you ever have such a lordly guest before i went on

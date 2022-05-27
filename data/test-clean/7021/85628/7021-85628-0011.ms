@@ -1,1 +1,0 @@
-the princess sat down under a blue canopy with bouquets of roses and she let andrew sit in a golden chair by her side

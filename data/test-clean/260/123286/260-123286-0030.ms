@@ -1,1 +1,0 @@
-suddenly the ichthyosaurus and the plesiosaurus disappear below leaving a whirlpool eddying in the water

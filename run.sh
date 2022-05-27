@@ -1,73 +1,56 @@
 #!/bin/bash
 
-# librispeech test-clean
-#DATASET=LIBRI_SPEECH_TEST_CLEAN
-#DATASET_FOLDER="data/test-clean"
+# [ Credentials ]
+AZURE_SPEECH_KEY=
+AZURE_SPEECH_LOCATION=
+AWS_PROFILE=
+GOOGLE_APPLICATION_CREDENTIALS=
 
-# spoken_test_2022_jan28
+# [ Datasets ]
 DATASET=SPOKEN_TEST_2022_JAN28
 DATASET_FOLDER="data/spoken_test_2022_jan28/input.txt"
 test1p=data/spoken_test_2022_jan28/text.1p
 test2p=data/spoken_test_2022_jan28/text.2p
 test3p=data/spoken_test_2022_jan28/text.3p
 
-# test
-#DATASET_FOLDER="test.txt"
+# [ Engines ]
+engines="AZURE_SPEECH_TO_TEXT AMAZON_TRANSCRIBE GOOGLE_SPEECH_TO_TEXT_ENHANCED GOOGLE_SPEECH_TO_TEXT"
+
+# [ Others ]
+tag=""
+_opts=""
 
 
-# --------- azure
+for engine in $engines; do
 
-#mkdir -p exp/azure
-#AZURE_SPEECH_KEY=ecb69acebd244777b333f83a26d68dbd
-#AZURE_SPEECH_LOCATION=westus2
-#python3 benchmark.py \
-#    --dataset ${DATASET} \
-#    --dataset-folder ${DATASET_FOLDER} \
-#    --output-folder exp/azure  \
-#    --engine AZURE_SPEECH_TO_TEXT \
-#    --azure-speech-key ${AZURE_SPEECH_KEY} \
-#    --azure-speech-location ${AZURE_SPEECH_LOCATION}
+    if [ "$engine" == "AZURE_SPEECH_TO_TEXT" ]; then
+        tag="azure"
+        _opts="--azure-speech-key ${AZURE_SPEECH_KEY} "
+        _opts+="--azure-speech-location ${AZURE_SPEECH_LOCATION}"
+    elif [ "$engine" == "AMAZON_TRANSCRIBE" ]; then
+        tag="aws"
+        _opts="--aws-profile ${AWS_PROFILE}"
+    else
+        [ "$engine" == "GOOGLE_SPEECH_TO_TEXT_ENHANCED" ] && tag="google_enhanced"
+        [ "$engine" == "GOOGLE_SPEECH_TO_TEXT" ] && tag="google_standard"
+        _opts="--google-application-credentials ${GOOGLE_APPLICATION_CREDENTIALS}"
+    fi
 
-#local/compute_individual_wer.sh exp/azure/${DATASET} $test1p $test2p $test3p
+    OUTPUT_FOLDER=exp/$tag
+    mkdir -p exp/$tag
 
-# --------- aws
+    echo "$0: Decoding ${DATASET} with $engine ..."
+    python3 benchmark.py \
+        --dataset ${DATASET} \
+        --dataset-folder ${DATASET_FOLDER} \
+        --output-folder ${OUTPUT_FOLDER}  \
+        --engine $engine \
+        ${_opts}
 
-#mkdir -p exp/aws
-#AWS_PROFILE="default"
-#python3 benchmark.py \
-#    --dataset ${DATASET} \
-#    --dataset-folder ${DATASET_FOLDER} \
-#    --output-folder exp/aws \
-#    --engine AMAZON_TRANSCRIBE \
-#    --aws-profile ${AWS_PROFILE}
+    local/compute_individual_wer.sh $OUTPUT_FOLDER/SPOKEN_TEST_2022_JAN28 $text1p $text2p $text3p
 
-#local/compute_individual_wer.sh exp/aws/${DATASET} $test1p $test2p $test3p
+done
 
-# --------- google enhanced
-
-mkdir -p exp/google_enhanced
-GOOGLE_APPLICATION_CREDENTIALS=others/google-credential.json
-python3 benchmark.py \
-    --dataset ${DATASET} \
-    --dataset-folder ${DATASET_FOLDER} \
-    --output-folder exp/google_enhanced \
-    --engine GOOGLE_SPEECH_TO_TEXT_ENHANCED \
-    --google-application-credentials ${GOOGLE_APPLICATION_CREDENTIALS}
-
-local/compute_individual_wer.sh exp/google_enhanced/${DATASET} $test1p $test2p $test3p
-
-# --------- google standard
-
-#mkdir -p exp/google_standard
-#GOOGLE_APPLICATION_CREDENTIALS=others/google-credential.json
-#python3 benchmark.py \
-#    --dataset ${DATASET} \
-#    --dataset-folder ${DATASET_FOLDER} \
-#    --output-folder exp/google_standard \
-#    --engine GOOGLE_SPEECH_TO_TEXT \
-#    --google-application-credentials ${GOOGLE_APPLICATION_CREDENTIALS}
-
-#local/compute_individual_wer.sh exp/google_standard/${DATASET} $test1p $test2p $test3p
-
-# --------- result
 ./result.sh
+
+exit 0

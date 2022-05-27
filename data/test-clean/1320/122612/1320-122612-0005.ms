@@ -1,1 +1,0 @@
-yet here are we within a short range of the spoons and not a sign of a trail have we crossed

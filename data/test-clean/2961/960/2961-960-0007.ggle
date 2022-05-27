@@ -1,1 +1,0 @@
-but they have nothing to do with the interpretation of plato and in spirit they are opposed to him

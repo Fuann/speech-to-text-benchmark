@@ -1,1 +1,0 @@
-the standard edison meter practice was to remove the cells once a month to the meter room of the central station company for examination another set being substituted

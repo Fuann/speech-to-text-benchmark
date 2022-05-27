@@ -1,1 +1,0 @@
-the people contested these measures one by one in the courts presenting in case after case the different phases of the subject and urging the unconstitutionality of the measure

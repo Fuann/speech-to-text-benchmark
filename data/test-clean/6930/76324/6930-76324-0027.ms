@@ -1,1 +1,0 @@
-forgetting all their weariness they seized their candles and scurried through the house finding on occasional paper tucked away in some odd corner

@@ -1,1 +1,0 @@
-independent of her fortune she has beauty to captivate the heart of any man and with all her follies she has a frankness in her manner an unaffected wisdom in her thoughts of elevacity in her conversation and withal a softness in her demeanour that might alone engage the affections of a man of the nicest sentiments and the strongest understanding

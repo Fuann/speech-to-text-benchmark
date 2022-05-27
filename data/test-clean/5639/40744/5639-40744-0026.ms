@@ -1,1 +1,0 @@
-lewis was out of danger in a fortnight and a month he rose from his bed and drawing all that time he was visited daily by his mother and grandmother and treated by the master and mistress of the house as if he was their own child

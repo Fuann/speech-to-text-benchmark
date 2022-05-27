@@ -1,1 +1,0 @@
-some of the penal regulations were copied from the edicts of diocletian and this method of conversion was applauded by the same bishops who had felt the hand of oppression and pleaded for the rights of humanity

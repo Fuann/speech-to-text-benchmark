@@ -1,1 +1,0 @@
-she was so strange and human a creature

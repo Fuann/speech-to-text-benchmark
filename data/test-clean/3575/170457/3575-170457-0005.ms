@@ -1,1 +1,0 @@
-she and tori and clergyman's daughter was always in a minority of one in our house of violent dissent and radicalism

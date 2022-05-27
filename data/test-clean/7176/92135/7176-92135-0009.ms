@@ -1,1 +1,0 @@
-and i shall begin with a short homily on siliquae

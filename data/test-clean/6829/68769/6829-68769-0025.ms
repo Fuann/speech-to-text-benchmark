@@ -1,1 +1,0 @@
-then rogers wouldn't do anything but lead her around and wait upon her and the place went to rack and ruin

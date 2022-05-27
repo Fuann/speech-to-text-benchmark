@@ -1,1 +1,0 @@
-but in truth pearl was the one as well as the other and only in consequence of that identity had hesder contrived so perfectly to represent the scarlet letter in her appearance

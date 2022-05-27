@@ -1,1 +1,0 @@
-by the hammer author shouted grimm there is no stingy coward

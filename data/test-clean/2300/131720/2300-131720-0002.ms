@@ -1,1 +1,0 @@
-there messiers johnson and hammer put into practice many of the ideas now standard in the art and secured much useful data for the work in new york of which the story has just been told

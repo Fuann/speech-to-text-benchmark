@@ -1,1 +1,0 @@
-no thank you i'll just look at the welps and leave a message about them with your shepherd

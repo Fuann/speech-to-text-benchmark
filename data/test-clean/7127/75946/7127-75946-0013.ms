@@ -1,1 +1,0 @@
-the king had completed his toilet by nine hundred o'clock he appeared in an open carriage decorated with branches of trees and flowers

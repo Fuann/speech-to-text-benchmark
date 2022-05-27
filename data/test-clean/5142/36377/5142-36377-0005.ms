@@ -1,1 +1,0 @@
-the door opened again while i was still studying the two brothers without i honestly confessed being very favorably impressed by either of them

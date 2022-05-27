@@ -1,1 +1,0 @@
-the old servant told him quietly as they crept back to gamewell that this passageway led from the hut in the pleasance to sherwood and that jeffrey for the time was hiding with the outlaws in the forest

@@ -1,1 +1,0 @@
-at the prow i carved the head with open mouth and forked tongue thrust out

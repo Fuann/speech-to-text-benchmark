@@ -1,1 +1,0 @@
-at last the little mice stayed away also and the tree sighed after all it was very pleasant when the sleek little mice sat round me and listened to what i told them

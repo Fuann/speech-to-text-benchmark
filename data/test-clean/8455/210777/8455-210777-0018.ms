@@ -1,1 +1,0 @@
-this she said was true hospitality and i am not sure that i did not agree with that

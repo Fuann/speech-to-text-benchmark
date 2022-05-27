@@ -1,1 +1,0 @@
-in the supposed depths of this dialogue the neoplatonists found hidden meanings and connections with the jewish and christian scriptures and out of them they elicited doctrines quiet at variance with the spirit of plato

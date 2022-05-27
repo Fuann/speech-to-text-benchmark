@@ -1,1 +1,0 @@
-old dances are simplified of their yearning bleached by time

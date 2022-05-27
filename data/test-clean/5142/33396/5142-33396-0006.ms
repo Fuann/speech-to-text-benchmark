@@ -1,1 +1,0 @@
-i made her for only twenty wars because i thought few men would follow me if i was young fifteen years old

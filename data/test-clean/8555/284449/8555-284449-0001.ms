@@ -1,1 +1,0 @@
-then they all marched out a little way into the fields and found that the army of pinkies had already formed and was advancing steadily toward them

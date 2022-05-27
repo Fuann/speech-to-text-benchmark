@@ -1,1 +1,0 @@
-and if i had a fortune would thee want me to lead a useless life

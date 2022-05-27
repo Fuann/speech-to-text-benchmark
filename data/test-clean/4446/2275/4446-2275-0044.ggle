@@ -1,1 +1,0 @@
-don't cry don't cry he whispered

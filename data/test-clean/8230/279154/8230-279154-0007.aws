@@ -1,1 +1,0 @@
-habit is a concept involving the occurrence of similar events at different times if the behaviorist feels confident that there is such a phenomenon as habit that can only be because he trusts his memory when it assures him that there have been other times

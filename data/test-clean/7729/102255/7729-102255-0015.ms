@@ -1,1 +1,0 @@
-one of his militia generals suggested that the governor should require the outlaws at lawrence and elsewhere to surrender the sharp's rifles another wrote asking him to call out the government troops at fort leavenworth

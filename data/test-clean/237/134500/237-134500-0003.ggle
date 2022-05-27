@@ -1,1 +1,0 @@
-the orchard was sparkling and rippling in the sun

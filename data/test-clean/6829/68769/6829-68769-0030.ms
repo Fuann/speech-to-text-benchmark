@@ -1,1 +1,0 @@
-i was bitkeeper so it was easy to get a blank cheque and forge the signature

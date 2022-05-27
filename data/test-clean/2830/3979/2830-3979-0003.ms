@@ -1,1 +1,0 @@
-the undertaking which seems so attractive when viewed as a literary task proved the most difficult one and at times became oppressive

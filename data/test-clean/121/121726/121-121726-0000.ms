@@ -1,1 +1,0 @@
-also a popular contrivance whereby love making may be suspended but not stopped during the picnic season

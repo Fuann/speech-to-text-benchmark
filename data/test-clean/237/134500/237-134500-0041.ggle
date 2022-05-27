@@ -1,1 +1,0 @@
-i can't pray to have the things i want he said slowly and i won't pray not to have them not if i'm damned for it

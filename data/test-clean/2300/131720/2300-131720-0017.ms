@@ -1,1 +1,0 @@
-edison had installed his historic first great central station system in new york on the multiple arc system covered by his feeder and main invention which resulted in a notable saving in the cost of conductors as against a straight two wire system throughout of the tree kind

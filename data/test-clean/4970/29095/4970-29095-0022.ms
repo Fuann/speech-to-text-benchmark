@@ -1,1 +1,0 @@
-is thee going to the yearly meeting ruth asked one of the girls

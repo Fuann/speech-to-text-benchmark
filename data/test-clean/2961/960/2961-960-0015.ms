@@ -1,1 +1,0 @@
-the style and plan of the timeus differ greatly from that of any other of the platonic dialogues

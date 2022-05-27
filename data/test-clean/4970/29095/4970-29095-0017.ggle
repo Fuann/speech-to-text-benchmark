@@ -1,1 +1,0 @@
-the sightseers returned in high spirits from the city

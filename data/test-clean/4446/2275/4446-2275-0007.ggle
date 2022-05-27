@@ -1,1 +1,0 @@
-she pushed him toward the big chair by the fire and sat down on a stool at the opposite side of the hearth her knees drawn up to her chin laughing like a happy little girl

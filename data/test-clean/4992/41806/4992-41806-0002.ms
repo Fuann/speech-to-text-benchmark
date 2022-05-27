@@ -1,1 +1,0 @@
-they began with the one in the family sitting room colonel wheeler ralph thurston mr and missus bill harmon with natty and ruffus mr and missus popham with digby and lolly joy all standing and admiring groups and thrilling with delight at the order of events

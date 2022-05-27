@@ -1,1 +1,0 @@
-as the chase drives away mary stands bewildered and perplexed on the doorstep her mind in a tumult of excitement in which hatred of the doctor distrust and suspicion of her mother's disappointment vexation and ill humor surge and swell among those delegate organizations on which the structure and development of the sole so closely depend doing perhaps and irreparable injury

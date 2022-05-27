@@ -1,1 +1,0 @@
-manhole vouched for her constancy with the loftiness that made alexander smile even while a kind of rapid excitement was tingling through him

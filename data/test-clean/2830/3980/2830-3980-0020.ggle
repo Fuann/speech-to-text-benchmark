@@ -1,1 +1,0 @@
-this is no sinful pride it is wholly pride

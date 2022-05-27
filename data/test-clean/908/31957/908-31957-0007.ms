@@ -1,1 +1,0 @@
-could it mean to last a love set pendulus between sorrow and sorrow

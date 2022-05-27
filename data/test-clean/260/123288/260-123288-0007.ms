@@ -1,1 +1,0 @@
-the wind never lulls but to acquire increased strength the vast bank of heavy clouds is a huge reservoir of fearful windy gusts and rushing storms

@@ -1,1 +1,0 @@
-she signed to me with a ghostly solemnity to take the vacant place on the left of her father

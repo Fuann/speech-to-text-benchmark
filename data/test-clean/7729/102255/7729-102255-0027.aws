@@ -1,1 +1,0 @@
-footnote sumner to shannon may twelve one thousand eight hundred and fifty six

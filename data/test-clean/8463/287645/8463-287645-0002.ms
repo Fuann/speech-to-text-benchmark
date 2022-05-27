@@ -1,1 +1,0 @@
-from the manner in which he expressed himself with regard to robert holland no man in the whole range of his recollections will be longer remembered than he his enthrallment while under holland will hardly ever be forgotten
